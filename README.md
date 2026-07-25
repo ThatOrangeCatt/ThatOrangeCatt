@@ -15,9 +15,9 @@
     <summary><ins> 「 ✦ INTRO ✦ 」 </ins></summary>
        <div align="center">
     <p> ${\color{#747F8F} "Wait, \space yo-\space your \space DSO, that's \space the \space u \space -uhh \space the\space the \space Counter-bioterrorism \space agency \space right?"}$
-    <p> ✧ socially inept & quiet in nature, i do things before thinking so umm im actively working on that ok... plz take me slow uuu
-    <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS), chiikawa, proseka, alnst, etc. in fndom hibernation rn i kno its short
-    <p> ✧ mini comf kins: grace ashcroft (RE: requiem), hachiware (chiikawa), kanade yoisaki (proseka), chippy (oc sona)
+    <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... plz take me slow 
+    <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS), chiikawa, proseka, alnst, etc. in fndom hibernation rn i kno its short i lowk need recs
+    <p> ✧ mini comf kins/selective: grace ashcroft (RE: requiem, f/o & me irl), hachiware (chiikawa), kanade yoisaki (proseka), chippy (oc sona)
        </div>
 </details>
 
