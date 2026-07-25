@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ThatOrangeCatt&color=FC7426&label=luvly+chippies&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=ThatOrangeCatt&color=FC7426&label=luvlies&abbreviated=true)
 
 <p align="center">
   <img src="3175967f0ac814ed0743700fd579c910.jpg" width="290" />
