@@ -3,7 +3,8 @@
 <p align="center">
   <img src="3175967f0ac814ed0743700fd579c910.jpg" width="290" />
 </p>
-<p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
+
+<p align=center> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=serif&size=12&duration=4500&pause=1000&color=9C8776&center=true&vCenter=true&multiline=true&width=435&lines=I+dont+want+any+more+regrets.+whatever+it+takes+count+me+in." alt="Typing SVG" /></a>
 
 <p align=center> 
   <img src="5796349d48f079898c3749788154addc.jpg" width="1000" height="20">
@@ -14,7 +15,7 @@
    <details>
     <summary><ins> 「 ✦ INTRO ✦ 」 </ins></summary>
        <div align="center">
-    <p> ${\color{#747F8F} "Wait, \space yo-\space your \space DSO, that's \space the \space u \space -uhh \space the\space the \space Counter-bioterrorism \space agency \space right?"}$
+    <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
     <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... plz take me slow 
     <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS), chiikawa, proseka, alnst, etc. in fndom hibernation rn i kno its short i lowk need recs
     <p> ✧ mini comf kins/selective: grace ashcroft (RE: requiem, f/o & me irl), hachiware (chiikawa), kanade yoisaki (proseka), chippy (oc sona)
