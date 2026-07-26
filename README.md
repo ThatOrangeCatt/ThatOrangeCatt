@@ -41,7 +41,7 @@
           </div>
 </details>
 <br>
-  <img src="welcome-sign-leon.webp" width="890">
+  <img src="download (3).jpg" width="890">
  <p align=center> ────────・・・ ✦ ・・・────────
 
 <p align="center">
