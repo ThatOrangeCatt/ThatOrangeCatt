@@ -16,8 +16,8 @@
     <summary><ins> 「 ✦ INTRO ✦ 」 </ins></summary>
        <div align="center">
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
-    <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... plz take me slow 
-    <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS), chiikawa, proseka, alnst, etc. in fndom hibernation rn i kno its short i lowk need recs
+    <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... plz take me slow  
+    <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS), chiikawa, proseka, alnst, etc etc whatever interests me. in fndom hibernation rn i kno its short i lowk need recs
     <p> ✧ mini comf kins/selective: grace ashcroft (RE: requiem, f/o & me irl), hachiware (chiikawa), kanade yoisaki (proseka), chippy (oc sona)
        </div>
 </details>
@@ -34,7 +34,7 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE cuddles [even offtb, afk], kiss n compliments !! jumps in joy
-        <p> ✧ chippy & tinted RE/other fandoms cos skins hi thats me . DNC/hvy insp
+        <p> ✧ chippy & tinted RE/other fandoms cos skins hi thats me . DNC/hvy insp um if u colorpick my skins ill see u as lesser than
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
         <p> ✧ dry texter, i dont mean it and u should too personally :‹ my social battery hits the rock bottom im gen fr 
         <p> ✧ would love new luvoomfs & if im close I latch onto luvoomfs easily,, tho im "a man of few words" 
