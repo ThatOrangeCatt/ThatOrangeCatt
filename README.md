@@ -49,6 +49,7 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b
   &nbsp;&nbsp;&nbsp;&nbsp;
 </p>
 <p align="center">  <img src="Screenshot 2026-07-19 150205.png" width="600">
-
+<div align="center">
+<img src="https://github.com/XyuumiArts/XyuumiArts/blob/main/thisfuckassgifbrah.gif" alt="Header" width="250"> 
 <p align=center> 
   <img src="5796349d48f079898c3749788154addc.jpg" width="1000" height="20">
