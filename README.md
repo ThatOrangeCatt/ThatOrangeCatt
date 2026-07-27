@@ -34,7 +34,7 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE cuddles [even offtb, afk], kiss n compliments !! jumps in joy
-        <p> ✧ chippy & tinted RE/other fandoms cos skins hi thats me . DNC/hvy insp um if u colorpick my skins ill see u as lesser than
+        <p> ✧ chippy & tinted RE/other fandoms cos skins hi thats me . DNC/hvy insp n colorpicking...
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
         <p> ✧ dry texter, i dont mean it and u should too personally :‹ my social battery hits the rock bottom im gen fr 
         <p> ✧ would love new luvoomfs & if im close I latch onto luvoomfs easily,, tho im "a man of few words" 
