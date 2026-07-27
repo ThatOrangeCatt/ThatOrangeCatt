@@ -41,7 +41,8 @@
           </div>
 </details>
 <br>
-  <img src="download (3).jpg" width="890">
+<div align="center">
+<img src="c66076a61a3fe8cf564fdf2eeb01f423.gif" alt="Header" width="890">
  <p align=center> ────────・・・ ✦ ・・・────────
 
 <p align="center">
