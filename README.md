@@ -10,7 +10,7 @@
   <img src="5796349d48f079898c3749788154addc.jpg" width="1000" height="20">
 
 <div align="center">
-<img src="https://github.com/XyuumiArts/XyuumiArts/blob/main/1e4c3038f01844a1566e02973587c912.gif" alt="Header" width="890">
+<img src="fc798299e3115a864e360b7e72662a16.jpg" alt="Header" width="890">
   <p align=center>  ────────・・・ ✦ ・・・────────
    <details>
     <summary><ins> 「 ✦ INTRO ✦ 」 </ins></summary>
@@ -42,7 +42,7 @@
 </details>
 <br>
 <div align="center">
-<img src="c66076a61a3fe8cf564fdf2eeb01f423.gif" alt="Header" width="890">
+<img src="2ce4cf9a33863e1067671b5797d35044.jpg" alt="Header" width="890">
  <p align=center> ────────・・・ ✦ ・・・────────
 
 <p align="center">
