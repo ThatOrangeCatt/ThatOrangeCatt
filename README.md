@@ -1,4 +1,6 @@
-![](https://komarev.com/ghpvc/?username=ThatOrangeCatt&color=FC7426&label=luvlies&abbreviated=true)
+  ㅤ<p align="center">ㅤ[新book](https://xyumxyum.atabook.org/)
+  <p align="center"> leave a message for a sprite n shawarma
+
 
 <p align="center">
   <img src="3175967f0ac814ed0743700fd579c910.jpg" width="290" />
