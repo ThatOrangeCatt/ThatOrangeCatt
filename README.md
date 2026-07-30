@@ -1,5 +1,4 @@
   ㅤ<p align="center">ㅤ[新book](https://xyumxyum.atabook.org/)
-  <p align="center"> leave a message for a sprite n shawarma
 
 
 <p align="center">
