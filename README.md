@@ -14,31 +14,33 @@
 <img src="fc798299e3115a864e360b7e72662a16.jpg" alt="Header" width="890">
   <p align=center>  ────────・・・ ✦ ・・・────────
    <details>
-    <summary><ins> 「 ✦ INTRO ✦ 」 </ins></summary>
+    <summary><ins> ヽ(`д´；)/ </ins></summary>
        <div align="center">
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
-    <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... plz take me slow  
-    <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS), chiikawa, proseka, etc etc whatever interests me. in fndom hibernation rn i kno its short
+    <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid 
+    <p> ✧ dry texter + blunt, very /sarc person. but I cherish my luvoomfs alot and thats just my sense of humor/i dont mean any of that
+    <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS.), chiikawa, proseka, etc etc whatever interests me. in fndom hibernation rn i kno its short
     <p> ✧ mini comf kins/selective: grace ashcroft (RE: requiem, f/o & me irl), hachiware (chiikawa), kanade yoisaki (proseka), chippy (oc sona)
        </div>
 </details>
 
 <br>
+
 </details>
 <br>
+
    <p align=center> 
   <img src="498b02bb7b4213760b1085f97e694383.jpg" width="890">
 </p>
  <p align=center> ────────・・・ ✦ ・・・────────
 <details>
-  <summary><ins> 「 ✦ ABOUT PT ✦ 」 </ins></summary>
+  <summary><ins> </ins> (;´□｀)/ </summary>
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
-        <p> ✧ LOVELOVELOVE cuddles [even offtb, afk], kiss n compliments !! jumps in joy
-        <p> ✧ chippy & tinted RE/other fandoms cos skins hi thats me . DNC/hvy insp or colorpicking...
+        <p> ✧ LOVELOVELOVE cuddles n hide [even offtb, afk], kiss n compliments !! jumps in joy
+        <p> ✧ basic dni (pro/darkship , homophobes , etc.). block freely but rarely
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
-        <p> ✧ dry texter, i dont mean it and u should too personally :‹ my social battery hits the rock bottom im gen fr 
-        <p> ✧ would love new luvoomfs & if im close I latch onto luvoomfs easily,, tho im "a man of few words" 
+        <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, tho im "a man of few words" 
           </div>
 </details>
 <br>
@@ -53,5 +55,7 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b
 <p align="center">  <img src="Screenshot 2026-07-19 150205.png" width="600">
 <div align="center">
 <img src="https://github.com/XyuumiArts/XyuumiArts/blob/main/thisfuckassgifbrah.gif" alt="Header" width="250"> 
+  
+  <p align=center> ts frying me
 <p align=center> 
   <img src="5796349d48f079898c3749788154addc.jpg" width="1000" height="20">
