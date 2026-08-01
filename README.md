@@ -38,7 +38,7 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE cuddles n hide [even offtb, afk], kiss n compliments !! jumps in joy
-        <p> ✧ basic dni (pro/darkship , homophobes , etc.). block freely but rarely
+        <p> ✧ rlly just basic dni (pro/darkship , homophobes , etc.) RE fndom iwec, aeon pmo dni pls.. blocking freely but rarely
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
         <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, tho im "a man of few words" 
           </div>
