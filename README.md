@@ -4,7 +4,8 @@
 <p align="center">
   <img src="3175967f0ac814ed0743700fd579c910.jpg" width="290" />
 </p>
-
+<p align="center"> ᴍʏ ᴄᴏᴍғ-ᴋɪɴ ғ/ᴏ & ᴍᴇ ɪʀʟ. sᴇʟᴇᴄᴛɪᴠᴇ sʜᴀʀɪɴɢ ♡
+  
 <p align=center> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=serif&size=12&duration=4500&pause=1000&color=9C8776&center=true&vCenter=true&multiline=true&width=435&lines=I+dont+want+any+more+regrets.+whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 
 <p align=center> 
@@ -20,8 +21,6 @@
     <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid 
     <p> ✧ dry texter + blunt, very /sarc person. but I cherish my luvoomfs alot and thats just my sense of humor/i dont mean any of that
     <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS.), chiikawa, proseka, etc etc whatever interests me. in fndom hibernation rn i kno its short
-    <p> ✧ mini comf kins/selective: grace ashcroft (RE: requiem, f/o & me irl), hachiware (chiikawa), kanade yoisaki (proseka), chippy (oc sona)
-       </div>
 </details>
 
 <br>
@@ -38,9 +37,9 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE cuddles n hide [even offtb, afk], kiss n compliments !! jumps in joy
-        <p> ✧ rlly just basic dni (pro/darkship , homophobes , etc.) RE fndom iwec, aeon pmo dni pls.. blocking freely but rarely
+        <p> ✧ rlly just basic dni (pro/darkship , homophobes , etc.) RE fndom iwc, aeon pmo dni pls.. blocking freely but rarely
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
-        <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, tho im "a man of few words" 
+        <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, "a man of few words" 
           </div>
 </details>
 <br>
