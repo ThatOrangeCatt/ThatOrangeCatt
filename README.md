@@ -22,7 +22,7 @@
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
     <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid 
     <p> ✧ dry texter + blunt, very /sarc person. but I cherish my luvoomfs alot and thats just my sense of humor/i dont mean any of that
-    <p> ✧ interests: resi evil (NEED RE MOOTS. intintint interest ≠ fandom), chiikawa, proseka, etc etc whatever interests me. in fndom hibernation rn i kno its short
+    <p> ✧ interests: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, proseka, etc etc whatever interests me. in fndom hibernation rn i kno its short
 </details>
 
 <br>
