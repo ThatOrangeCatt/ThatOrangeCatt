@@ -22,7 +22,7 @@
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
     <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid 
     <p> ✧ dry texter + blunt, very /sarc person. but I cherish my luvoomfs alot and thats just my sense of humor/i dont mean any of that
-    <p> ✧ fndom int: resi evil (primary, NEED RE MOOTS.), chiikawa, proseka, etc etc whatever interests me. in fndom hibernation rn i kno its short
+    <p> ✧ interests: resi evil (NEED RE MOOTS. intintint interest ≠ fandom), chiikawa, proseka, etc etc whatever interests me. in fndom hibernation rn i kno its short
 </details>
 
 <br>
@@ -39,13 +39,14 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE cuddles n hide [even offtb, afk], kiss n compliments !! jumps in joy
-        <p> ✧ rlly just basic dni (pro/darkship , homophobes , etc.) RE fndom & grace doubles iwec, aeon pmo dni.. blocking freely but rarely
+        <p> ✧ rlly just basic dni (pro/darkship , homophobes , etc.)
+        <p> ✧ IWEC = resievil fndom unless luvoomfs, grace doubles/#1 fan [grace cos = ok! plz int♡] aeon shippers dni
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
-        <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, "a man of few words" 
+        <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, i'm a "man of few words" 
           </div>
 </details>
 <br>
-<div align="center">
+<div align="center">    
 <img src="2ce4cf9a33863e1067671b5797d35044.jpg" alt="Header" width="890">
  <p align=center> ────────・・・ ✦ ・・・────────
 
