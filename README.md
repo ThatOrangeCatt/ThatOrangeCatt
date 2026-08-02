@@ -1,12 +1,12 @@
  #### <p align="center">ㅤ[新book](https://xyumxyum.atabook.org/)
 
 <p align="center">
-  <img src="3175967f0ac814ed0743700fd579c910.jpg" width="300" />
+  <img src="3175967f0ac814ed0743700fd579c910.jpg" width="400" />
 </p>
   <p align="center"> ... ♡ ...
   <p align="center"> f/o & me irl ! selective 
    
- ##### <p align="center"> [title town](https://github.com/title-town) pony town's grace wrenwood ⁠♡⁠♡
+ ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
   
 <p align=center> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=serif&size=12&duration=4500&pause=1000&color=9C8776&center=true&vCenter=true&multiline=true&width=435&lines=I+dont+want+any+more+regrets.+whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 
