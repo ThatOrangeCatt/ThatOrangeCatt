@@ -52,7 +52,7 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b
   &nbsp;&nbsp;&nbsp;&nbsp;
 </p>
 
-<p align="center">  <img src="meows.png" width="600">
+<p align="center">  <img src="sane.png" width="600">
 <div align="center">
    <details> 
        <summary><ins></ins> ♡♡♡♡ </summary>
