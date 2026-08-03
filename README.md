@@ -19,11 +19,11 @@
 <img src="fc798299e3115a864e360b7e72662a16.jpg" alt="Header" width="890">
   <p align=center>  ────────・・・ ✦ ・・・────────
    <details>
-    <summary><ins> ヽ(`д´；)/ </ins></summary>
+    <summary><ins> [BYI]ヽ(`д´；)/ </ins></summary>
        <div align="center">
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
     <p> ✧ intintintint: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, dbh, link-click etc etc. leon-ashley ship
-    <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid 
+    <p> ✧ socially anxious, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid/uf
     <p> ✧ dry texter + blunt, very /sarc & suggestive person. but I cherish my luvoomfs alot and that's my sense of humor/i don't mean any of that
     <p> ✧ my humor can be something else sometimes so please if u dontlike it or anyth about me u dont like about just dni n block thanksyou [if we're not close]
  
@@ -36,12 +36,12 @@
 </p>
  <p align=center> ────────・・・ ✦ ・・・────────
 <details>
-  <summary><ins> </ins> (;´□｀)/ </summary>
+  <summary><ins> </ins> (;´□｀)/ [ABOUT PT] </summary>
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
-        <p> ✧ LOVELOVELOVE cuddles n hide [even offtb, afk], kiss n compliments !! jumps in joy
+        <p> ✧ LOVELOVELOVE c+h, quiet company [even offtb, afk], kiss n compliments !! jumps in joy [may not talk much]
         <p> ✧ rlly just basic dni (pro/darkship , homophobes , etc.)
-        <p> ✧ IWEC = resievil fndom discourse unless luvoomfs, grace doubles/#1 fan, aeon shippers & graceleon DNI
+        <p> ✧ IWEC = resievil fndom discourse unless luvoomfs, grace doubles/#1 fan, aeon shippers & graceleon DNI 
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
         <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, i'm a "man of few words" 
           </div>
