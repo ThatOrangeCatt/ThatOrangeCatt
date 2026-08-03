@@ -5,6 +5,9 @@
 </p>
   <p align="center"> ... ♡ ...
   <p align="center"> f/o & me irl ! selective 
+
+
+<p align="center"><img width="170" height="200" alt="grace- c+h-lie-4x" src="bouncy.gif" />
    
  ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
   
