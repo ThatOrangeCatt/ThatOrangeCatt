@@ -22,7 +22,7 @@
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
     <p> ✧ intintintint: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, dbh, link-click etc etc. leon-ashley ship
     <p> ✧ socially inept, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid 
-    <p> ✧ dry texter + blunt, very /sarc & suggestive person. but I cherish my luvoomfs alot and that's my sense of humor/i don't mean any of that personally
+    <p> ✧ dry texter + blunt, very /sarc & suggestive person. but I cherish my luvoomfs alot and that's my sense of humor/i don't mean any of that
     <p> ✧ my humor can be something else sometimes so please if u dontlike it or anyth about me u dont like about just dni n block thanksyou [if we're not close]
  
 </details>
