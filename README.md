@@ -3,7 +3,7 @@
 <p align="center">
   <img src="3175967f0ac814ed0743700fd579c910.jpg" width="400" />
 </p>
-  <p align="center"> f/o, me irl ! selective 
+  <p align="center"> f/o, me irl ! selective soft sharing
 
 
 <p align="center"><img width="170" height="200" alt="grace- c+h-lie-4x" src="bouncy.gif" />
@@ -42,7 +42,7 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE c+h, quiet company [even offtb, afk], kiss n compliments !! jumps in joy [may not int/talk much !]
-        <p> ✧ IWEC = resievil fndom discourse unless luvoomfs, grace doubles/#1 fan, aeon shippers & graceleon DNI 
+        <p> ✧ basic dni, IWEC = resievil fndom dniuluvoomfs, grace doubles/"#1 fan", aeon & graceleon shippers
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
         <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, i'm a "man of few words" 
           </div>
