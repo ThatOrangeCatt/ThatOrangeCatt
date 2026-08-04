@@ -1,7 +1,7 @@
  #### <p align="center">ㅤ[新book](https://xyumxyum.atabook.org/)
 
 <p align="center">
-  <img src="3175967f0ac814ed0743700fd579c910.jpg" width="400" />
+  <img src="3175967f0ac814ed0743700fd579c910.jpg" width="350" />
 </p>
   <p align="center"> f/o, me irl ! selective soft sharing
 
@@ -19,6 +19,7 @@
 
 <div align="center">
 <img src="fc798299e3115a864e360b7e72662a16.jpg" alt="Header" width="890">
+ 
   <p align=center>  ────────・・・ ✦ ・・・────────
    <details>
     <summary><ins> [BYI]ヽ(`д´；)/ </ins></summary>
@@ -60,7 +61,7 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b
 <p align="center">  <img src="sane.png" width="600">
 <div align="center">
    <details> 
-       <summary><ins></ins> ♡♡♡♡ </summary>
+       <summary><ins></ins> my luvlies ♡♡♡♡ </summary>
 <img src="https://github.com/XyuumiArts/XyuumiArts/blob/main/thisfuckassgifbrah.gif" alt="Header" width="250"> 
    <div align="center">
     
