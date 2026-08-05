@@ -34,6 +34,18 @@
 
 <br>
 
+<details>
+  <summary><ins> </ins> [CAUTIONARY] (*｀∧´) </summary>
+      <div align="center"> 
+   <p align=center> ── IWEC & DNI ──
+   <p> basic dni mostly
+   <p>  resievil fndom discourse in general [unless luvoomfs]
+   <p>  grace overtdoubles/"#1 fan" ur in thin ice
+   <p> DNIDNI = aeon, graceleon shippers fuck off idont want u here
+          </div>
+       </details>
+<br>
+
    <p align=center> 
   <img src="498b02bb7b4213760b1085f97e694383.jpg" width="890">
 </p>
@@ -43,12 +55,11 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE c+h, quiet company [even offtb, afk], kiss n compliments !! jumps in joy [may not int/talk much !]
-        <p> ✧ basic dni, IWEC = resievil fndom dniuluvoomfs, grace doubles/"#1 fan", aeon & graceleon shippers
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
         <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, i'm a "man of few words" 
-          </div>
 </details>
 <br>
+
 <div align="center">    
 <img src="2ce4cf9a33863e1067671b5797d35044.jpg" alt="Header" width="890">
  <p align=center> ────────・・・ ✦ ・・・────────
