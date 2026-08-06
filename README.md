@@ -78,6 +78,11 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b
     
    <img src="Screenshot 2026-07-19 150205.png" width="400">
    <div align="center">
+      <img src="image.webp" width="400">
+   <div align="center">
    <img src="saltcube.png" width="400">
+    </details>
+<br>
+    
 <p align=center> 
   <img src="5796349d48f079898c3749788154addc.jpg" width="1000" height="20">
