@@ -25,8 +25,9 @@
     <summary><ins> [BYI]ヽ(`д´；)/ </ins></summary>
        <div align="center">
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
+    <p> <p align="center"> ${\color{#ff7844}nicknames: \space xyuu, \space mimi, \space thatorangecat, \space grace.}$
     <p> ✧ intintintint: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, dbh, link-click etc etc. leon-ashley ship
-    <p> ✧ socially anxious, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... sometimes dniuid/uf
+    <p> ✧ socially anxious, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... will eventually warm up
     <p> ✧ dry text + blunt, very /sarc & suggestive person. but I cherish my luvoomfs alot and that's my sense of humor/i don't mean any of that
     <p> ✧ humor can be something else sometimes so please if u dontlike it or anyth about me u dont like about just dni n block thanksyou [if we're not close]
  
@@ -56,7 +57,7 @@
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p> ✧ LOVELOVELOVE c+h, quiet company [even offtb, afk], kiss n compliments !! jumps in joy [may not int/talk much !]
         <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
-        <p> ✧ love making new luvoomfs & if im close I latch onto luvoomfs easily,, i'm a "man of few words" 
+        <p> ✧ love making new luvoomfs ! plz dont b shy & if im close I latch onto luvoomfs easily,, a "man of few words" 
 </details>
 <br>
 
