@@ -51,8 +51,8 @@
   <summary><ins> </ins> (;´□｀)/ [ABOUT PT] </summary>
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
-        <p> ✧ LOVELOVELOVE c+h, quiet company [even offtb, afk], kiss n compliments !! jumps in joy [may not int/talk much !]
-        <p> ✧ W2I preferrably!! I get distracted in pub chats & I dont wanna miss a thing from u
+        <p> ✧ LOVELOVELOVE c+h, quiet company, kiss n compliments even if its not in my name!! jumpsin joy [may not int/talk much !]
+        <p> ✧ W2I preferrably!! I get distracted or offtab/afk most of the time
         <p> ✧ love making new luvoomfs ! plz dont b shy & if im close I latch onto luvoomfs easily,, a "man of few words" 
 </details>
 <br>
