@@ -3,8 +3,6 @@
 <p align="center">
   <img src="3175967f0ac814ed0743700fd579c910.jpg" width="350" />
 </p>
-  <p align="center"> f/o, me irl ! selective soft sharing
-
 
 <p align="center"><img width="170" height="200" alt="grace- c+h-lie-4x" src="bouncy.gif" />
    
