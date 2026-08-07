@@ -3,9 +3,7 @@
 <p align="center">
   <img src="3175967f0ac814ed0743700fd579c910.jpg" width="350" />
 </p>
-
-<p align="center"><img width="170" height="200" alt="grace- c+h-lie-4x" src="bouncy.gif" />
-   
+ 
  ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
 
  ##### <p align="center"> [ponytown’s grace ashcroft resident evil⁠ ♡⁠♡](https://github.com/ponychievements)
@@ -13,10 +11,10 @@
 <p align=center> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=serif&size=12&duration=4500&pause=1000&color=9C8776&center=true&vCenter=true&multiline=true&width=435&lines=I+dont+want+any+more+regrets.+whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 
 <p align=center> 
-  <img src="5796349d48f079898c3749788154addc.jpg" width="1000" height="20">
+  <img src="7073425e6eb58f0b980d1e8ce5b1c18d.jpg" width="1000" height="20">
 
 <div align="center">
-<img src="fc798299e3115a864e360b7e72662a16.jpg" alt="Header" width="890">
+<img src="d6d106095a51da06bd05f4430ae7f607.jpg" alt="Header" width="890">
  
   <p align=center>  ────────・・・ ✦ ・・・────────
    <details>
@@ -46,7 +44,7 @@
 <br>
 
    <p align=center> 
-  <img src="498b02bb7b4213760b1085f97e694383.jpg" width="890">
+  <img src="fc798299e3115a864e360b7e72662a16.jpg" width="890">
 </p>
  <p align=center> ────────・・・ ✦ ・・・────────
 <details>
@@ -60,7 +58,7 @@
 <br>
 
 <div align="center">    
-<img src="2ce4cf9a33863e1067671b5797d35044.jpg" alt="Header" width="890">
+<img src="498b02bb7b4213760b1085f97e694383.jpg" alt="Header" width="890">
  <p align=center> ────────・・・ ✦ ・・・────────
 
 <p align="center">
@@ -84,4 +82,4 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b
 <br>
     
 <p align=center> 
-  <img src="5796349d48f079898c3749788154addc.jpg" width="1000" height="20">
+  <img src="7073425e6eb58f0b980d1e8ce5b1c18d.jpg" width="1000" height="20">
