@@ -1,4 +1,6 @@
- #### <p align="center">ㅤ[新book](https://xyumxyum.atabook.org/)
+<p align="center"> 
+  <a href="https://xyumxyum.atabook.org/" target="_blank">
+  <img src="chii grace" alt="ata" width="20%">
 
 <p align="center">
   <img src="1000001331.jpg" width="410" />
