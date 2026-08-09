@@ -1,7 +1,7 @@
  #### <p align="center">ㅤ[新book](https://xyumxyum.atabook.org/)
 
 <p align="center">
-  <img src="lol" width="400" /> 
+  <img src="1000001331.jpg" width="410" />
 </p>
  
  ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
