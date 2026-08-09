@@ -7,6 +7,8 @@
  ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
 
  ##### <p align="center"> [ponytown’s grace ashcroft resident evil⁠ ♡⁠♡](https://github.com/ponychievements)
+
+  ##### <p align="center"> [pony town's GRACE ASHCROFT ♡⁠♡](https://github.com/pt-walk-of-fame)
   
 <p align=center> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=serif&size=12&duration=4500&pause=1000&color=9C8776&center=true&vCenter=true&multiline=true&width=435&lines=I+dont+want+any+more+regrets.+whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 
