@@ -38,7 +38,7 @@
       <div align="center"> 
    <p align=center> ── IWEC & DNI ──
    <p> basic dni mostly
-   <p> -15 &-13 pls dni !
+   <p> -15 below, pls dni ! +18 int w very extreme caution...
    <p>  resievil fndom discourse in general [unless luvoomfs]
    <p>  grace overtdoubles/"#1 fan" ur in thin ice
    <p> DNIDNI = aeon, graceleon shippers fuck off
