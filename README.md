@@ -23,10 +23,10 @@
     <summary><ins> [BYI]ヽ(`д´；)/ </ins></summary>
        <div align="center">
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
-    <p> <p align="center"> ${\color{#ff7844}nicknames: \space xyuu, \space yuumi, \space thatorangecat, \space grace.}$
-    <p> ✧ intintintint: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, dbh, link-click etc etc. leon-ashley ship
+    <p> <p align="center"> ${\color{#ff7844}nicknames: \space xyumi/xyu, \space yuumi, \space thatorangecat, \space grace.}$
+    <p> ✧ intintintint: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, dbh, link-click etc etc. leon-ashley, jillclaire, adagrace shippers
     <p> ✧ socially anxious, recluse & quiet in nature, i do things before thinking so umm im actively working on that ok... will eventually warm up
-    <p> ✧ dry text + blunt, very /sarc & suggestive person. but I cherish my luvoomfs alot and that's my sense of humor/i don't mean any of that
+    <p> ✧ dry text + blunt, very /sarc & suggestive person. but I cherish my oomfs alot and that's my sense of humor/i don't mean any of that
     <p> ✧ humor can be something else sometimes so please if u dontlike it or anyth about me u dont like about just dni n block thanksyou [if we're not close]
  
 </details>
@@ -38,6 +38,7 @@
       <div align="center"> 
    <p align=center> ── IWEC & DNI ──
    <p> basic dni mostly
+   <p> -15 &-13 pls dni !
    <p>  resievil fndom discourse in general [unless luvoomfs]
    <p>  grace overtdoubles/"#1 fan" ur in thin ice
    <p> DNIDNI = aeon, graceleon shippers fuck off
@@ -53,9 +54,10 @@
   <summary><ins> </ins> (;´□｀)/ [ABOUT PT] </summary>
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
+        <p>  <p align=center>  hi waves im dat grace n orange orcat sona skins
         <p> ✧ LOVELOVELOVE c+h, quiet company, kiss n compliments even if its not in my name!! jumpsin joy [may not int/talk much !]
-        <p> ✧ W2I preferrably!! I get distracted or offtab/afk most of the time
-        <p> ✧ love making new luvoomfs ! plz dont b shy & if im close I latch onto luvoomfs easily,, a "man of few words" 
+        <p> ✧ W2I pref!! I get distracted or offtab/afk most of the time
+        <p> ✧ love making new luvoomfs ! plz dont b shy to int & if im close I latch onto luvoomfs easily,, a "man of few words" 
 </details>
 <br>
 
@@ -71,7 +73,7 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b
 <p align="center">  <img src="sane.png" width="600">
 <div align="center">
    <details> 
-       <summary><ins></ins> my luvlies ♡♡♡♡ </summary>
+       <summary><ins></ins> i heart u ♡♡♡ </summary>
 <img src="https://github.com/XyuumiArts/XyuumiArts/blob/main/thisfuckassgifbrah.gif" alt="Header" width="250"> 
    <div align="center">
     
