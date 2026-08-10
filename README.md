@@ -1,6 +1,6 @@
 <p align="center"> 
   <a href="https://xyumxyum.atabook.org/" target="_blank">
-  <img src="chii grace" alt="ata" width="20%">
+  <img src="chii grace" alt="ata" width="35%">
 
 <p align="center">
   <img src="1000001331.jpg" width="410" />
