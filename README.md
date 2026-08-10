@@ -5,7 +5,9 @@
 <p align="center">
   <img src="1000001331.jpg" width="410" />
 </p>
- 
+
+<p align=center> f.o & me irl ! ❤︎ selective
+  
  ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
 
  ##### <p align="center"> [ponytown’s grace ashcroft resident evil⁠ ♡⁠♡](https://github.com/ponychievements)
@@ -43,7 +45,7 @@
    <p> -13 below, pls dni ! +18 int w very extreme caution...
    <p>  resievil fndom discourse in general [unless luvoomfs]
    <p>  grace overtdoubles/"#1 fan" ur in thin ice
-   <p> DNIDNI = aeon, graceleon shippers fuck off
+   <p> DNIDNIDNI = aeon, graceleon (romantically) shippers fuck off
           </div>
        </details>
 <br>
@@ -57,9 +59,10 @@
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
         <p>  <p align=center>  hi waves im dat grace n orange orcat sona skins
-        <p> ✧ LOVELOVELOVE c+h, quiet company, kiss n compliments even if its not in my name!! jumpsin joy [may not int/talk much !]
-        <p> ✧ W2I pref!! I get distracted or offtab/afk most of the time
-        <p> ✧ love making new luvoomfs ! plz dont b shy to int & if im close I latch onto luvoomfs easily,, a "man of few words" 
+        <p> ✧ LOVELOVELOVE c+h, quiet company, kiss n compliments even if its not in my name!! jumpsin joy
+        <p> ✧ very skittish & tend to go completely distant/blunt especially if we're not close, please iwc
+        <p> ✧ W2I always!! I get distracted or offtab/afk most of the time
+        <p> ✧ love making new luvoomfs in game! plz dont b shy to int & if im close I latch onto luvoomfs easily,, a "man of few words" 
 </details>
 <br>
 
@@ -68,14 +71,14 @@
  <p align=center> ────────・・・ ✦ ・・・────────
 
 <p align="center">
-everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF</b></kbd></a> everyone: follows
+everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF ★ </b></kbd></a> everyone: follows
   &nbsp;&nbsp;&nbsp;&nbsp;
 </p>
 
 <p align="center">  <img src="sane.png" width="600">
 <div align="center">
    <details> 
-       <summary><ins></ins> i heart u ♡♡♡ </summary>
+       <summary><ins></ins> the place in my heart ♡♡ </summary>
 <img src="https://github.com/XyuumiArts/XyuumiArts/blob/main/thisfuckassgifbrah.gif" alt="Header" width="250"> 
    <div align="center">
     
