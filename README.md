@@ -1,10 +1,8 @@
- ##### <p align="center"> [sign ata for free 🍰](https://xyumxyum.atabook.org/)
-
 <p align="center">
-  <img src="1000001331.jpg" width="410" />
+  <img src="3175967f0ac814ed0743700fd579c910.jpg" width="320" />
 </p>
 
-<p align=center> f.o & me irl ! ❤︎ selective
+<p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/sign ata for free 🍰-ab9786?style=flat"></a>
   
  ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
 
