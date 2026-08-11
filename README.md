@@ -28,7 +28,7 @@
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
     <p> <p align="center"> ${\color{#ff7844}nicknames: \space xyumi/xyu, \space yuumi, \space thatorangecat, \space grace.}$
     <p> ✧ intintintint: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, dbh, link-click etc etc. leon-ashley, jillclaire, adagrace shippers
-    <p> ✧ socially anxious, recluse & a "man of few words", i do things before thinking so umm im actively working on that ok... will eventually warm up
+    <p> ✧ socially anxious, recluse & a "man of few words", i do things before thinking so umm im actively working on that.. iwcare always
     <p> ✧ dry text + blunt, very /sarc & suggestive person. but I cherish my oomfs alot and that's my sense of humor/i don't mean any of that
     <p> ✧ I can be something else sometimes so anyth about me u dont like about just dni n block thanksyou [if we're not close]
  
@@ -60,7 +60,7 @@
         <p>  <p align=center>  hi waves im dat grace n orange orcat sona skins
         <p> ✧ LOVELOVELOVE c+h, quiet company, kiss n compliments even if its not in my name!! jumpsin joy
         <p> ✧ W2I always!! I get distracted or offtab/afk most of the time
-        <p> ✧ love making new luvoomfs in game! will warm up eventually and latch onto luvoomfs easily,,
+        <p> ✧ love making new luvoomfs in game! latches onto luvoomfs easily,,
 </details>
 <br>
 
