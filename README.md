@@ -43,7 +43,7 @@
    <p> basic dni mostly
    <p> -13 below, pls dni ! +18 int w very extreme caution...
    <p>  resievil fndom discourse in general [unless luvoomfs]
-   <p>  grace overtdoubles/"#1 fan" ur in thin ice
+   <p>  grace overtdoubles/"#1 fan" dont pmo 
    <p> DNIDNIDNI = aeon, graceleon (romantically) shippers fuck off
           </div>
        </details>
