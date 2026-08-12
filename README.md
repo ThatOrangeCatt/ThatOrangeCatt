@@ -13,7 +13,8 @@
 ##### <p align="center"> [Grace Ashcroft's YUME ♡⁠♡](https://github.com/ponytownyumeshippers)
 
     
-<p align=center> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=serif&size=12&duration=4500&pause=1000&color=9C8776&center=true&vCenter=true&multiline=true&width=435&lines=I+dont+want+any+more+regrets.+whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
+<p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes;+count+me+in." alt="Typing SVG" /></a>
+
 
 <p align=center> 
   <img src="7073425e6eb58f0b980d1e8ce5b1c18d.jpg" width="1000" height="20">
