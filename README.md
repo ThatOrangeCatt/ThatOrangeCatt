@@ -28,7 +28,7 @@
        <div align="center">
     <p> <p align="center"> ${\color{#BDA699}"DSO.. \space U-uhh \space I'm \space Grace, \space Ashcroft, \space U-uh \space FBI."}$
     <p> <p align="center"> ${\color{#ff7844}nicknames: \space xyumi/xyu, \space yuumi, \space thatorangecat, \space grace.}$
-    <p> ✧ intintintint: resi evil (NEED RE MOOTS. interest ≠ fandom), chiikawa, dbh, link-click etc etc. leon-ashley, jillclaire, adagrace shippers
+    <p> ✧ intintintint: resi evil (NEED RE MOOTS. fandom iwvec), chiikawa, dbh, link-click etc etc. leon-ashley, jillclaire, adagrace shippers
     <p> ✧ socially anxious, recluse & a "man of few words", i do things before thinking so umm im actively working on that.. iwcare always
     <p> ✧ dry text + blunt, very /sarc & suggestive person. but I cherish my oomfs alot and that's my sense of humor/i don't mean any of that
     <p> ✧ I can be something else sometimes so anyth about me u dont like about just dni n block thanksyou [if we're not close]
@@ -42,10 +42,10 @@
       <div align="center"> 
    <p align=center> ── IWEC & DNI ──
    <p> basic dni mostly
-   <p> -13 below, pls dni ! +18 int w very extreme caution...
+   <p> -12 below dni, 15 / +18 int at ur own risk ...
    <p>  resievil fndom discourse in general [unless luvoomfs]
-   <p>  grace overtdoubles/"#1 fan" dont pmo 
-   <p> DNIDNIDNI = aeon, graceleon (romantically) shippers fuck off
+   <p>  grace ashcroft overtdoubles/"#1 fan" dont pmo 
+   <p> DNIDNIDNI = AEON, graceleon (romantically) shippers fuck off
           </div>
        </details>
 <br>
@@ -58,9 +58,8 @@
   <summary><ins> </ins> (;´□｀)/ [ABOUT PT] </summary>
       <div align="center"> 
         <p> ${\color{#A8977D}"I-If \space you're \space so \space sick, \space why \space would \space you \space come \space here \space?"}$
-        <p>  <p align=center>  hi waves im dat grace n orange orcat sona skins
-        <p> ✧ LOVELOVELOVE c+h, quiet company, kiss n compliments even if its not in my name!! jumpsin joy
-        <p> ✧ W2I always!! I get distracted or offtab/afk most of the time
+        <p>  <p align=center>  hi waves im dat grace n orange orcat sona
+        <p> ✧ LOVELOVELOVE c+h imight cuddle back!, quiet company, kisses n compliments even if its not in tag 
         <p> ✧ love making new luvoomfs in game! latches onto luvoomfs easily,,
 </details>
 <br>
