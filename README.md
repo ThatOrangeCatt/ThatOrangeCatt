@@ -1,3 +1,4 @@
+<p align="center"> strongly viewed in PC only ! (； ；)
 <hr />
 <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/sign ata for free 🍰-ab9786?style=flat"></a>
