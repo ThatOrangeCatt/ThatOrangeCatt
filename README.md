@@ -9,7 +9,7 @@
 <td style="width: 418.929px;" align="center">
 
 <p>$\color{#BDB0A6}{\textsf{ nicknames: xyumi/xyu, yuumi, grace.}}$</p>
-<p>$\color{#8A837D}{\textsf{socially anxious/awkward. i dont initiate iwcare}}$</p>
+<p>$\color{#8A837D}{\textsf{socially anxious/awkward. i dont initiate. iwcare}}$</p>
 <p>$\color{#8A837D}{\textsf{a dry texter, blunt, /sarc suggestive person as humor}}$</p>
 <p>$\color{#808080}{\textsf{can be smt else, what u dont like about me = dni or block}}$</p>
 <p>$\color{#808080}{\textsf{if we're not close.}}$</p>
