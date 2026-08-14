@@ -9,17 +9,20 @@
 <td style="width: 418.929px;" align="center">
 
 <p>$\color{#BDB0A6}{\textsf{ nicknames: xyumi/xyu, yuumi, grace.}}$</p>
-<p>$\color{#BDB0A6}{\textsf{ im dat graceashcroft n tinted skins}}$</p>
-<p>$\color{#A19C99}{\textsf{int/bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
-<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire n adagrace shippers}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious/awkward. i dont initiate iwcare}}$</p>
+<p>$\color{#8A837D}{\textsf{a dry texter, blunt, /sarc suggestive person as humor}}$</p>
+<p>$\color{#808080}{\textsf{can be smt else, what u dont like about me = dni or block}}$</p>
+<p>$\color{#808080}{\textsf{if we're not close.}}$</p>
+ &nbsp; &nbsp; 
+ <p>$\color{#A19C99}{\textsf{int/bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
+<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire n adagrace shippers}}$</p>
 </td>
 </tr>
 
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
  
-  ##### <p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
+  ##### 󠁯<p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
 
  ##### <p align="center"> [ponytown’s grace ashcroft resident evil⁠ ♡⁠♡](https://github.com/ponychievements)
 
@@ -53,9 +56,10 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
+<p>$\color{#808080}{\textsf{heavy emphasis on DNCopy skins. inspo = ok ♡}}$</p>
 <p>$\color{#808080}{\textsf{LOVELOVE c+h+kiss, quiet company n compliments}}$</p>
 <p>$\color{#808080}{\textsf{offtb/afk most of the time. W2I}}$</p>
-<p>$\color{#808080}{\textsf{love to make new pony oomfs ingame! idont bite}}$</p>
+<p>$\color{#808080}{\textsf{love making new oomfs ingame! im lonely pawsatyou}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
