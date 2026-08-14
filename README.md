@@ -14,11 +14,7 @@
 
     
 <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes;+count+me+in." alt="Typing SVG" /></a>
-
-
-<p align=center> 
-  <img src="7073425e6eb58f0b980d1e8ce5b1c18d.jpg" width="1000" height="20">
-
+<hr />
 <div align="center">
 <img src="d6d106095a51da06bd05f4430ae7f607.jpg" alt="Header" width="890">
  
@@ -87,6 +83,4 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF â˜
    <img src="saltcube.png" width="400">
     </details>
 <br>
-    
-<p align=center> 
-  <img src="7073425e6eb58f0b980d1e8ce5b1c18d.jpg" width="1000" height="20">
+<hr />
