@@ -11,8 +11,7 @@
 <p>$\color{#8A837D}{\textsf{she/her . 16+}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious, recluse. i dont initiate.}}$</p>
 <p>$\color{#8A837D}{\textsf{dry texter, /sarc suggestive person}}$</p>
-<p>$\color{#808080}{\textsf{can be smt else humourously}}$</p>
-<p>$\color{#808080}{\textsf{what u dont like about me = dni-block}}$</p>
+<p>$\color{#808080}{\textsf{what u dont like about me = dni}}$</p>
 <p>$\color{#808080}{\textsf{*if we're not close.*}}$</p>
  &nbsp; &nbsp; 
 </td>
@@ -57,9 +56,9 @@
 <p>$\color{#D9D3CE}{\textsf{DNI}}$</p>
 <p>$\color{#BDB0A6}{\textsf{basic dni}}$</p>
 <p>$\color{#8A837D}{\textsf{-13 below}}$</p>
-<p>$\color{#8A837D}{\textsf{fndom discourse [unless oomfs]}}$</p>
+<p>$\color{#8A837D}{\textsf{general fndom discourse}}$</p>
 <p>&nbsp; &nbsp; $\color{#808080}{\textsf{grace overtdoubles/no.1 fan dont pmo}}$</p>
-<p>$\color{#808080}{\textsf{AEON, graceleon shippers}}$</p>
+<p>$\color{#808080}{\textsf{AEON, graceleon ship}}$</p>
 </td>
 </tr>
 
@@ -67,9 +66,9 @@
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
 <p>$\color{#808080}{\textsf{heavy DNCopy . inspo ok}}$</p>
-<p>$\color{#808080}{\textsf{c+h, kiss n compliments welcome}}$</p>
+<p>$\color{#808080}{\textsf{c+h, kiss n compliments enc}}$</p>
 <p>$\color{#808080}{\textsf{W2I. mostly offtb/afk}}$</p>
-<p>$\color{#808080}{\textsf{love making new pony oomfs}}$</p>
+<p>$\color{#808080}{\textsf{love to make new oomfs}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
