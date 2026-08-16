@@ -9,7 +9,7 @@
 <tr>
 <td style="width: 441.991px;"><img src="498b02bb7b4213760b1085f97e694383.jpg" width="403" height="330" /></td>
 <td style="width: 418.929px;" align="center">
-<p>$\color{#BDB0A6}{\textsf{ xyumi / yuumi / grace.}}$</p>
+<p>$\color{#BDB0A6}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#8A837D}{\textsf{she/her . 16+}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious, recluse. i dont initiate.}}$</p>
 <p>$\color{#8A837D}{\textsf{dry texter, /sarc suggestive person}}$</p>
@@ -59,7 +59,7 @@
 <p>$\color{#BDB0A6}{\textsf{basic dni}}$</p>
 <p>$\color{#8A837D}{\textsf{-13 below}}$</p>
 <p>$\color{#8A837D}{\textsf{15-18+ iwec}}$</p>
-<p>$\color{#8A837D}{\textsf{general fndom discourse}}$</p>
+<p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
 <p>&nbsp; &nbsp; $\color{#808080}{\textsf{grace overtdoubles/no.1 fan dont pmo}}$</p>
 <p>$\color{#808080}{\textsf{AEON, graceleon ship}}$</p>
 </td>
@@ -70,7 +70,7 @@
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
 <p>$\color{#808080}{\textsf{heavy DNCopy . inspo ok}}$</p>
 <p>$\color{#808080}{\textsf{c+h, kiss n compliments enc}}$</p>
-<p>$\color{#808080}{\textsf{W2I. mostly offtb/afk}}$</p>
+<p>$\color{#808080}{\textsf{W2I. gets offtb/afk}}$</p>
 <p>$\color{#808080}{\textsf{love to make new oomfs}}$</p>
 <p>&nbsp;</p>
 </td>
