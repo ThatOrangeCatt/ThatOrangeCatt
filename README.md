@@ -12,9 +12,9 @@
   &nbsp; &nbsp; 
 <p>$\color{#BDB0A6}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#8A837D}{\textsf{she/her . 16+}}$</p>
-<p>$\color{#8A837D}{\textsf{socially anxious, recluse. i dont initiate.}}$</p>
-<p>$\color{#8A837D}{\textsf{dry texter, /sarc suggestive person}}$</p>
-<p>$\color{#808080}{\textsf{what u dont like about me = dni}}$</p>
+<p>$\color{#8A837D}{\textsf{socially anxious, i dont initiate.}}$</p>
+<p>$\color{#8A837D}{\textsf{dry text, /sarc suggestive person}}$</p>
+<p>$\color{#808080}{\textsf{what u dont like ab me = dni}}$</p>
 <p>$\color{#808080}{\textsf{*if we're not close.*}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
@@ -81,9 +81,9 @@
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
 <p>$\color{#808080}{\textsf{heavy DNC. inspo= ok}}$</p>
-<p>$\color{#808080}{\textsf{c+h, kiss-compliments enc}}$</p>
+<p>$\color{#808080}{\textsf{c+h+k-compliment enc !}}$</p>
 <p>$\color{#808080}{\textsf{W2I. distracted/afk}}$</p>
-<p>$\color{#808080}{\textsf{love making new oomfs}}$</p>
+<p>$\color{#808080}{\textsf{love making new oomf}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
