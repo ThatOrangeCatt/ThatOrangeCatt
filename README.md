@@ -9,12 +9,21 @@
 <tr>
 <td style="width: 441.991px;"><img src="498b02bb7b4213760b1085f97e694383.jpg" width="403" height="330" /></td>
 <td style="width: 418.929px;" align="center">
+  &nbsp; &nbsp; 
 <p>$\color{#BDB0A6}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#8A837D}{\textsf{she/her . 16+}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious, recluse. i dont initiate.}}$</p>
 <p>$\color{#8A837D}{\textsf{dry texter, /sarc suggestive person}}$</p>
 <p>$\color{#808080}{\textsf{what u dont like about me = dni}}$</p>
 <p>$\color{#808080}{\textsf{*if we're not close.*}}$</p>
+<p> <div align="center"> <details> 
+       <summary><ins></ins> INTERACT ✰ </summary>
+   <div align="center">
+    &nbsp; &nbsp;
+    <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
+<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire n adagrace shippers}}$</p>
+    </details>
+<br>
  &nbsp; &nbsp; 
 </td>
 </tr>
@@ -41,39 +50,40 @@
 </tbody>
 </table>
 
-&nbsp; &nbsp;
-   <div align="center"> <details> 
-       <summary><ins></ins> INTERACT ✰ </summary>
-   <div align="center">
-    &nbsp; &nbsp;
-    <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
-<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire n adagrace shippers}}$</p>
-    </details>
-<br>
-
 
 <table style="height: 503px;" width="600" align="center">
 <tbody>
 <tr>
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
-<p>$\color{#D9D3CE}{\textsf{DNI}}$</p>
-<p>$\color{#BDB0A6}{\textsf{basic dni}}$</p>
-<p>$\color{#8A837D}{\textsf{-13 below}}$</p>
-<p>$\color{#8A837D}{\textsf{15-18+ iwec}}$</p>
+<p> <div align="center"> <details> 
+       <summary><ins></ins> DNI </summary>
+   <div align="center">
+    &nbsp; &nbsp;
+    <p>$\color{#8A837D}{\textsf{-13}}$</p>
+<p>$\color{#8A837D}{\textsf{AEON, graceleon ship}}$</p>
+    </details>
+<br>
+
+<p> <div align="center"> <details> 
+       <summary><ins></ins> IWEC/IWC </summary>
+   <div align="center">
+    &nbsp; &nbsp;
+    <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
 <p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
-<p>&nbsp; &nbsp; $\color{#808080}{\textsf{grace overtdoubles/no.1 fan dont pmo}}$</p>
-<p>$\color{#808080}{\textsf{AEON, graceleon ship}}$</p>
+<p>$\color{#8A837D}{\textsf{grace doubles}}$</p>
+    </details>
+<br>
 </td>
 </tr>
 
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
-<p>$\color{#808080}{\textsf{heavy DNCopy . inspo ok}}$</p>
-<p>$\color{#808080}{\textsf{c+h, kiss n compliments enc}}$</p>
-<p>$\color{#808080}{\textsf{W2I. gets offtb/afk}}$</p>
-<p>$\color{#808080}{\textsf{love to make new oomfs}}$</p>
+<p>$\color{#808080}{\textsf{heavy DNC. inspo= ok}}$</p>
+<p>$\color{#808080}{\textsf{c+h, kiss-compliments enc}}$</p>
+<p>$\color{#808080}{\textsf{W2I. distracted/afk}}$</p>
+<p>$\color{#808080}{\textsf{love making new oomfs}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
