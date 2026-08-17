@@ -2,7 +2,7 @@
 <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-ab9786?style=flat"></a> 
 &nbsp; &nbsp; 
- <p align="center"><img src="https://img.shields.io/badge/profile viewed best on PC-827978?style=flat"></a>
+ <p align="center"><img src="https://img.shields.io/badge/profile PC layout!-827978?style=flat"></a>
 &nbsp; &nbsp; 
 <table style="height: 603px;" width="847" align="center">
 <tbody>
@@ -22,13 +22,15 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
  
-  ##### 󠁯<p align="center"> [pony town's grace wrenwood ⁠♡⁠♡](https://github.com/title-town)
+ <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
 
- ##### <p align="center"> [ponytown’s grace ashcroft resident evil⁠ ♡⁠♡](https://github.com/ponychievements)
+ <p align="center"> <a href="https://github.com/pt-walk-of-fame"><img src="https://img.shields.io/badge/pony town's GRACE ASHCROFT ♡⁠♡-B3A494?style=flat"></a>
 
-  ##### <p align="center"> [pony town's GRACE ASHCROFT ♡⁠♡](https://github.com/pt-walk-of-fame)
+ <p align="center"> <a href="https://github.com/ponychievements"><img src="https://img.shields.io/badge/ponytown’s grace ashcroft resident evil⁠ ♡⁠♡-B3A494?style=flat"></a> 
 
-##### <p align="center"> [Grace Ashcroft's YUME ♡⁠♡](https://github.com/ponytownyumeshippers)
+<p align="center"> <a href="https://github.com/ponytownyumeshippers"><img src="https://img.shields.io/badge/Grace Ashcroft's YUME ♡⁠♡-B3A494?style=flat"></a> 
+
+<p align="center"> <a href="https://github.com/cosplaytown"><img src="https://img.shields.io/badge/ponytown's grace ashcroft (re:requiem) ♡⁠♡-B3A494?style=flat"></a> 
 
 <p>&nbsp;</p>
 </td>
