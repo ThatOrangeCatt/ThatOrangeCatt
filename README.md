@@ -103,7 +103,7 @@ everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF �
 <p align="center">  <img src="7a11e625d9415c0ee27e9e07dc807e2c.webp" width="300">
 <div align="center">
   &nbsp; &nbsp; 
-    <details>       <summary><ins></ins> the place in my heart ♡♡ </summary>
+    <details>       <summary><ins></ins> chuds ♡♡ </summary>
 <img src="https://github.com/XyuumiArts/XyuumiArts/blob/main/thisfuckassgifbrah.gif" alt="Header" width="250"> 
    <div align="center">
       <img src="image.webp" width="400">
