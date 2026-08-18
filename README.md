@@ -21,7 +21,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
-<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire n adagrace shippers}}$</p>
+<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire shippers}}$</p>
     </details>
 <br>
  &nbsp; &nbsp; 
