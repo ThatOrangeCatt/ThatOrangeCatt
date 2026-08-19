@@ -31,6 +31,9 @@
 
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
+
+<p align="center"> <p>$\color{#808080}{\textsf{mini f/o. me irl}}$</p>
+<p align="center"> <p>$\color{#808080}{\textsf{soft-sharing}}$</p>
  
  <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
 
@@ -67,12 +70,12 @@
 <br>
 
 <p> <div align="center"> <details> 
-       <summary><ins></ins> IWEC/IWC </summary>
+       <summary><ins></ins> MINI DNI/iwc </summary>
    <div align="center">
     &nbsp; &nbsp;
     <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
 <p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
-<p>$\color{#8A837D}{\textsf{grace doubles}}$</p>
+<p>$\color{#8A837D}{\textsf{grace overtdoubles}}$</p>
     </details>
 <br>
 </td>
