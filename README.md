@@ -10,10 +10,11 @@
 <td style="width: 441.991px;"><img src="498b02bb7b4213760b1085f97e694383.jpg" width="403" height="330" /></td>
 <td style="width: 418.929px;" align="center">
   &nbsp; &nbsp; 
-<p>$\color{#BDB0A6}{\textsf{ xyumi / chips / grace.}}$</p>
+<p>$\color{#BDB0A6}{\textsf{ xyu / chips / grace.}}$</p>
 <p>$\color{#8A837D}{\textsf{she/her . 16+}}$</p>
-<p>$\color{#8A837D}{\textsf{socially anxious, i dont initiate.}}$</p>
-<p>$\color{#8A837D}{\textsf{dry text, /sarc suggestive person}}$</p>
+<p>$\color{#8A837D}{\textsf{digiartist}}$</p>
+<p>$\color{#8A837D}{\textsf{socially anxious, non-initative.}}$</p>
+<p>$\color{#8A837D}{\textsf{dry texter, suggestive humor}}$</p>
 <p>$\color{#808080}{\textsf{what u dont like ab me = dni}}$</p>
 <p>$\color{#808080}{\textsf{*if we're not close.*}}$</p>
 <p> <div align="center"> <details> 
@@ -21,7 +22,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
-<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire shippers}}$</p>
+<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire/grace shipp}}$</p>
     </details>
 <br>
  &nbsp; &nbsp; 
