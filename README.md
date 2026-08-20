@@ -10,7 +10,7 @@
 <td style="width: 418.929px;" align="center">
   &nbsp; &nbsp; 
 <p>$\color{#BDB0A6}{\textsf{ xyu / chips / grace.}}$</p>
-<p>$\color{#8A837D}{\textsf{she/her . 16+}}$</p>
+<p>$\color{#8A837D}{\textsf{she/her . 17}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious, idont initiate.}}$</p>
 <p>$\color{#8A837D}{\textsf{dry texter, suggestive humor}}$</p>
 <p>$\color{#808080}{\textsf{what u dont like ab me= dni}}$</p>
