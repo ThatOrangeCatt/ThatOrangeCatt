@@ -30,8 +30,8 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 
-<p align="center"> <p>$\color{#808080}{\textsf{mini f/o. me irl}}$</p>
-<p align="center"> <p>$\color{#808080}{\textsf{soft-sharing}}$</p>
+<p align="center"> <p>$\color{#808080}{\textsf{f/o. me irl}}$</p>
+<p align="center"> <p>$\color{#808080}{\textsf{specific-sharing}}$</p>
  
  <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
 
@@ -58,19 +58,12 @@
 <tr>
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
-<p> <div align="center"> <details> 
-       <summary><ins></ins> DNI </summary>
-   <div align="center">
-    &nbsp; &nbsp;
+      &nbsp; &nbsp;
+   <p>$\color{#c8beb8}{\textsf{DNI}}$</p>
     <p>$\color{#8A837D}{\textsf{-13}}$</p>
 <p>$\color{#8A837D}{\textsf{AEON, graceleon ship}}$</p>
-    </details>
-<br>
-
-<p> <div align="center"> <details> 
-       <summary><ins></ins> MINI DNI/iwc </summary>
-   <div align="center">
     &nbsp; &nbsp;
+   <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
     <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
 <p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
 <p>$\color{#8A837D}{\textsf{grace overtdoubles}}$</p>
@@ -82,8 +75,8 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
-<p>$\color{#808080}{\textsf{heavy DNC. inspo= ok}}$</p>
-<p>$\color{#808080}{\textsf{c+h+k-compliment enc !}}$</p>
+<p>$\color{#808080}{\textsf{heavy DNC. inspo is ok}}$</p>
+<p>$\color{#808080}{\textsf{c+h+k-compliment enc}}$</p>
 <p>$\color{#808080}{\textsf{W2I. distracted/afk}}$</p>
 <p>$\color{#808080}{\textsf{love making new oomf}}$</p>
 <p>&nbsp;</p>
