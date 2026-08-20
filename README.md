@@ -11,17 +11,16 @@
   &nbsp; &nbsp; 
 <p>$\color{#BDB0A6}{\textsf{ xyu / chips / grace.}}$</p>
 <p>$\color{#8A837D}{\textsf{she/her . 16+}}$</p>
-<p>$\color{#8A837D}{\textsf{digiart ig}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious, idont initiate.}}$</p>
 <p>$\color{#8A837D}{\textsf{dry texter, suggestive humor}}$</p>
-<p>$\color{#808080}{\textsf{what u dont like ab me = dni}}$</p>
-<p>$\color{#808080}{\textsf{*if not close.*}}$</p>
+<p>$\color{#808080}{\textsf{what u dont like ab me= dni}}$</p>
+<p>$\color{#808080}{\textsf{*if nonoomfs*}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
    <div align="center">
     &nbsp; &nbsp;
     <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
-<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire/grace shipp}}$</p>
+<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire/grace ship}}$</p>
     </details>
 <br>
  &nbsp; &nbsp; 
