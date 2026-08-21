@@ -2,7 +2,7 @@
  <hr />
  <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 <p> <div align="center"> <details> 
-       <summary><ins></ins> <p>$\color{#b3aba3}{\textsf{FluffAgent, }}$</p> </summary>
+       <summary><ins></ins> <p>$\color{#9dafbb}{\textsf{FluffAgent,SoftWarmth}}$</p> </summary>
    <div align="center">
     &nbsp; &nbsp;
     <p>$\color{#97918c}{\textsf{romantic,comf f/o}}$</p>
@@ -22,11 +22,11 @@
 <td style="width: 441.991px;"><img src="498b02bb7b4213760b1085f97e694383.jpg" width="403" height="330" /></td>
 <td style="width: 418.929px;" align="center">
   &nbsp; &nbsp; 
-<p>$\color{#BDB0A6}{\textsf{ xyumi / chips / grace.}}$</p>
-<p>$\color{#8A837D}{\textsf{she/her . 17}}$</p>
-<p>$\color{#8A837D}{\textsf{socially anxious, idont initiate.}}$</p>
-<p>$\color{#8A837D}{\textsf{dry texter, suggestive humor}}$</p>
-<p>$\color{#808080}{\textsf{dni if ur uncomf}}$</p>
+<p>$\color{#a19388}{\textsf{ xyumi / chips / grace.}}$</p>
+<p>$\color{#a19388}{\textsf{she/her . 17}}$</p>
+<p>$\color{#a19388}{\textsf{socially anxious, idont initiate.}}$</p>
+<p>$\color{#8a9095}{\textsf{dry texter, suggestive humor}}$</p>
+<p>$\color{#8a9095}{\textsf{dni if ur uncomf}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
    <div align="center">
@@ -42,19 +42,19 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 
- <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
+ <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-a6b2bc?style=flat"></a> 
 
- <p align="center"> <a href="https://github.com/pt-loveforfictional"><img src="https://img.shields.io/badge/grᥲᥴᥱ ᥲshᥴroft ყυmᥱ [rᥱ] ⁠♡⁠♡-B3A494?style=flat"></a> 
+ <p align="center"> <a href="https://github.com/pt-loveforfictional"><img src="https://img.shields.io/badge/grᥲᥴᥱ ᥲshᥴroft ყυmᥱ [rᥱ] ⁠♡⁠♡-a6b2bc?style=flat"></a> 
 
- <p align="center"> <a href="https://github.com/pt-walk-of-fame"><img src="https://img.shields.io/badge/pony town's GRACE ASHCROFT ♡⁠♡-B3A494?style=flat"></a>
+ <p align="center"> <a href="https://github.com/pt-walk-of-fame"><img src="https://img.shields.io/badge/pony town's GRACE ASHCROFT ♡⁠♡-a6b2bc?style=flat"></a>
 
- <p align="center"> <a href="https://github.com/ponychievements"><img src="https://img.shields.io/badge/ponytown’s grace ashcroft resident evil⁠ ♡⁠♡-B3A494?style=flat"></a> 
+ <p align="center"> <a href="https://github.com/ponychievements"><img src="https://img.shields.io/badge/ponytown’s grace ashcroft resident evil⁠ ♡⁠♡-a99c8a?style=flat"></a> 
 
-<p align="center"> <a href="https://github.com/ponytownyumeshippers"><img src="https://img.shields.io/badge/Grace Ashcroft's YUME ♡⁠♡-B3A494?style=flat"></a> 
+<p align="center"> <a href="https://github.com/ponytownyumeshippers"><img src="https://img.shields.io/badge/Grace Ashcroft's YUME ♡⁠♡-a99c8a?style=flat"></a> 
 
-<p align="center"> <a href="https://github.com/cosplaytown"><img src="https://img.shields.io/badge/ponytown's grace ashcroft (re:requiem) ♡⁠♡-B3A494?style=flat"></a>
+<p align="center"> <a href="https://github.com/cosplaytown"><img src="https://img.shields.io/badge/ponytown's grace ashcroft (re:requiem) ♡⁠♡-a99c8a?style=flat"></a>
 
- <p align="center"> <a href="https://github.com/pt-loveforfictional"><img src="https://img.shields.io/badge/ᥣᥱshᥣᥱყ shιρρᥱr (ᥣᥱoᥒ x ᥲshᥣᥱყ) ♡⁠♡-d29557?style=flat"></a> 
+ <p align="center"> <a href="https://github.com/pt-loveforfictional"><img src="https://img.shields.io/badge/ᥣᥱshᥣᥱყ shιρρᥱr (ᥣᥱoᥒ x ᥲshᥣᥱყ) ♡⁠♡-a99c8a?style=flat"></a> 
 
 <p>&nbsp;</p>
 </td>
@@ -70,9 +70,9 @@
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
       &nbsp; &nbsp;
-   <p>$\color{#c8beb8}{\textsf{DNI}}$</p>
-    <p>$\color{#8A837D}{\textsf{-13}}$</p>
-<p>$\color{#8A837D}{\textsf{AEON, graceleon ship}}$</p>
+   <p>$\color{#c1cbd1}{\textsf{DNI}}$</p>
+    <p>$\color{#9ba6ad}{\textsf{-13}}$</p>
+<p>$\color{#9ba6ad}{\textsf{AEON, graceleon ship}}$</p>
     &nbsp; &nbsp;
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
     <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
