@@ -30,8 +30,16 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 
-<p align="center"> <p>$\color{#808080}{\textsf{f/o. me irl}}$</p>
-<p align="center"> <p>$\color{#808080}{\textsf{specific-sharing}}$</p>
+<p> <div align="center"> <details> 
+       <summary><ins></ins> GRACE ✰ </summary>
+   <div align="center">
+    &nbsp; &nbsp;
+    <p>$\color{#808080}{\textsf{f/o: romantic,comfort}}$</p>
+        <p>$\color{#808080}{\textsf{me irl}}$</p>
+<p>$\color{#808080}{\textsf{semi-nonsharing}}$</p>
+    <p>$\color{#808080}{\textsf{only comfsharing/hyper= close oomfs}}$</p>
+    </details>
+<br>
  
  <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
 
