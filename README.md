@@ -3,7 +3,7 @@
  <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 <p>  <p align="center">$\color{#B2AC9F}{\textsf{WhiteNoise, FluffAgent}}$</p>
 <p>  <p align="center">$\color{#A69E97}{\textsf{self ins x canon}}$</p>
-<p>  <p align="center">$\color{#808080}{\textsf{[click heart to 🍓page]}}$</p>
+<p>  <p align="center">$\color{#808080}{\textsf{[click heart to 🍓page . art wall]}}$</p>
 <p align="center"> <img src="chips" width="230"></a> <a href="https://fluffagent.straw.page" target="_blank">
   <img src="hearts.png" alt="straw" width="230"> <img src="0.png" width="230">
  <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-ab9786?style=flat"></a> 
@@ -15,7 +15,7 @@
 <td style="width: 441.991px;"><img src="498b02bb7b4213760b1085f97e694383.jpg" width="403" height="330" /></td>
 <td style="width: 418.929px;" align="center">
   &nbsp; &nbsp; 
-<p>$\color{#BDB0A6}{\textsf{ xyu / chips / grace.}}$</p>
+<p>$\color{#BDB0A6}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#8A837D}{\textsf{she/her . 17}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious, idont initiate.}}$</p>
 <p>$\color{#8A837D}{\textsf{dry texter, suggestive humor}}$</p>
@@ -36,8 +36,8 @@
 <td style="width: 441.991px;" align="center">&nbsp;
 
 <p>  <p align="center">$\color{#808080}{\textsf{f/o: romantic,comfort}}$</p>
-<p>  <p align="center">$\color{#808080}{\textsf{semi-sharing}}$</p>
-<p>  <p align="center">$\color{#808080}{\textsf{comf/hyper=close oomfs}}$</p>
+<p>  <p align="center">$\color{#808080}{\textsf{semi-nonsharing}}$</p>
+<p>  <p align="center">$\color{#808080}{\textsf{sharing/hyper= close oomfs}}$</p>
 
  <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
 
