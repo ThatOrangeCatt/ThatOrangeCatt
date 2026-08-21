@@ -1,12 +1,19 @@
 
  <hr />
  <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
-<p>  <p align="center">$\color{#B2AC9F}{\textsf{WhiteNoise, FluffAgent}}$</p>
-<p>  <p align="center">$\color{#A69E97}{\textsf{self ins x canon}}$</p>
-<p>  <p align="center">$\color{#808080}{\textsf{[click heart to 🍓page . art wall]}}$</p>
+<p> <div align="center"> <details> 
+       <summary><ins></ins> <p>$\color{#b3aba3}{\textsf{WhiteNoise, FluffAgent}}$</p> </summary>
+   <div align="center">
+    &nbsp; &nbsp;
+    <p>$\color{#97918c}{\textsf{romantic,comf f/o}}$</p>
+<p>$\color{#97918c}{\textsf{heavy specific sharing}}$</p>
+    <p>$\color{#97918c}{\textsf{sharing|hyper w/ oomfs}}$</p>
+    </details>
+<br>
+<p>  <p align="center">$\color{#b8afae}{\textsf{[click heart ⇨🍓page . art wall]}}$</p>
 <p align="center"> <img src="chips" width="230"></a> <a href="https://fluffagent.straw.page" target="_blank">
   <img src="hearts.png" alt="straw" width="230"> <img src="0.png" width="230">
- <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-ab9786?style=flat"></a> 
+ <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-968f88?style=flat"></a> 
 <hr />
  <p align="center"><img src="unnamed.png" width="290" height="310" >
 <table style="height: 603px;" width="847" align="center">
@@ -35,11 +42,9 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 
-<p>  <p align="center">$\color{#808080}{\textsf{f/o: romantic,comfort}}$</p>
-<p>  <p align="center">$\color{#808080}{\textsf{semi-nonsharing}}$</p>
-<p>  <p align="center">$\color{#808080}{\textsf{sharing/hyper= close oomfs}}$</p>
-
  <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
+
+ <p align="center"> <a href="https://github.com/pt-loveforfictional"><img src="https://img.shields.io/badge/grᥲᥴᥱ ᥲshᥴroft ყυmᥱ [rᥱ] ⁠♡⁠♡-B3A494?style=flat"></a> 
 
  <p align="center"> <a href="https://github.com/pt-walk-of-fame"><img src="https://img.shields.io/badge/pony town's GRACE ASHCROFT ♡⁠♡-B3A494?style=flat"></a>
 
@@ -47,7 +52,9 @@
 
 <p align="center"> <a href="https://github.com/ponytownyumeshippers"><img src="https://img.shields.io/badge/Grace Ashcroft's YUME ♡⁠♡-B3A494?style=flat"></a> 
 
-<p align="center"> <a href="https://github.com/cosplaytown"><img src="https://img.shields.io/badge/ponytown's grace ashcroft (re:requiem) ♡⁠♡-B3A494?style=flat"></a> 
+<p align="center"> <a href="https://github.com/cosplaytown"><img src="https://img.shields.io/badge/ponytown's grace ashcroft (re:requiem) ♡⁠♡-B3A494?style=flat"></a>
+
+ <p align="center"> <a href="https://github.com/pt-loveforfictional"><img src="https://img.shields.io/badge/ᥣᥱshᥣᥱყ shιρρᥱr (ᥣᥱoᥒ x ᥲshᥣᥱყ) ♡⁠♡-d29557?style=flat"></a> 
 
 <p>&nbsp;</p>
 </td>
