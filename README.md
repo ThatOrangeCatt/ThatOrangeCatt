@@ -2,7 +2,7 @@
  <hr />
  <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 <p> <div align="center"> <details> 
-       <summary><ins></ins> <p>$\color{#b3aba3}{\textsf{WhiteNoise, FluffAgent}}$</p> </summary>
+       <summary><ins></ins> <p>$\color{#b3aba3}{\textsf{FluffAgent, }}$</p> </summary>
    <div align="center">
     &nbsp; &nbsp;
     <p>$\color{#97918c}{\textsf{romantic,comf f/o}}$</p>
