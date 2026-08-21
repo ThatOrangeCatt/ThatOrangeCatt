@@ -13,8 +13,7 @@
 <p>$\color{#8A837D}{\textsf{she/her . 17}}$</p>
 <p>$\color{#8A837D}{\textsf{socially anxious, idont initiate.}}$</p>
 <p>$\color{#8A837D}{\textsf{dry texter, suggestive humor}}$</p>
-<p>$\color{#808080}{\textsf{what u dont like ab me= dni}}$</p>
-<p>$\color{#808080}{\textsf{*if nonoomfs*}}$</p>
+<p>$\color{#808080}{\textsf{dni if ur uncomf}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
    <div align="center">
@@ -37,7 +36,8 @@
     <p>$\color{#808080}{\textsf{f/o: romantic,comfort}}$</p>
         <p>$\color{#808080}{\textsf{me irl}}$</p>
 <p>$\color{#808080}{\textsf{semi-nonsharing}}$</p>
-    <p>$\color{#808080}{\textsf{only comfsharing/hyper= close oomfs}}$</p>
+    <p>$\color{#808080}{\textsf{only comf/hypershare}}$</p>
+        <p>$\color{#808080}{\textsf{w/ closeoomfs}}$</p>
     </details>
 <br>
  
