@@ -1,8 +1,14 @@
+
+ <hr />
+ <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
+<p>  <p align="center">$\color{#B2AC9F}{\textsf{WhiteNoise, FluffAgent}}$</p>
+<p>  <p align="center">$\color{#A69E97}{\textsf{self ins x canon}}$</p>
+<p>  <p align="center">$\color{#808080}{\textsf{[click heart to 🍓page]}}$</p>
+<p align="center"> <img src="chips" width="230"></a> <a href="https://fluffagent.straw.page" target="_blank">
+  <img src="hearts.png" alt="straw" width="230"> <img src="0.png" width="230">
+ <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-ab9786?style=flat"></a> 
 <hr />
-<p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-ab9786?style=flat"></a> 
-&nbsp; &nbsp; 
  <p align="center"><img src="unnamed.png" width="290" height="310" >
-<p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
 <table style="height: 603px;" width="847" align="center">
 <tbody>
 <tr>
@@ -29,18 +35,10 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 
-<p> <div align="center"> <details> 
-       <summary><ins></ins> GRACE ✰ </summary>
-   <div align="center">
-    &nbsp; &nbsp;
-    <p>$\color{#808080}{\textsf{f/o: romantic,comfort}}$</p>
-        <p>$\color{#808080}{\textsf{me irl}}$</p>
-<p>$\color{#808080}{\textsf{semi-nonsharing}}$</p>
-    <p>$\color{#808080}{\textsf{only comf/hypershare}}$</p>
-        <p>$\color{#808080}{\textsf{w/ closeoomfs}}$</p>
-    </details>
-<br>
- 
+<p>  <p align="center">$\color{#808080}{\textsf{f/o: romantic,comfort}}$</p>
+<p>  <p align="center">$\color{#808080}{\textsf{semi-sharing}}$</p>
+<p>  <p align="center">$\color{#808080}{\textsf{comf/hyper=close oomfs}}$</p>
+
  <p align="center"> <a href="https://github.com/title-town"><img src="https://img.shields.io/badge/pony town's grace wrenwood ⁠♡⁠♡-B3A494?style=flat"></a> 
 
  <p align="center"> <a href="https://github.com/pt-walk-of-fame"><img src="https://img.shields.io/badge/pony town's GRACE ASHCROFT ♡⁠♡-B3A494?style=flat"></a>
@@ -59,8 +57,6 @@
 </tr>
 </tbody>
 </table>
-
-
 <table style="height: 503px;" width="600" align="center">
 <tbody>
 <tr>
@@ -74,7 +70,7 @@
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
     <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
 <p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
-<p>$\color{#8A837D}{\textsf{grace overtdoubles}}$</p>
+<p>$\color{#8A837D}{\textsf{overtly doubles}}$</p>
     </details>
 <br>
 </td>
@@ -83,8 +79,8 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
-<p>$\color{#808080}{\textsf{heavy DNC. inspo is ok}}$</p>
-<p>$\color{#808080}{\textsf{c+h+k-compliment enc}}$</p>
+<p>$\color{#808080}{\textsf{heavy DNCopy.}}$</p>
+<p>$\color{#808080}{\textsf{c+h+k enc}}$</p>
 <p>$\color{#808080}{\textsf{W2I. distracted/afk}}$</p>
 <p>$\color{#808080}{\textsf{love making new oomf}}$</p>
 <p>&nbsp;</p>
