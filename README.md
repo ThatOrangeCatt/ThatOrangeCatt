@@ -54,8 +54,6 @@
 
 <p align="center"> <a href="https://github.com/cosplaytown"><img src="https://img.shields.io/badge/ponytown's grace ashcroft (re:requiem) ♡⁠♡-a99c8a?style=flat"></a>
 
- <p align="center"> <a href="https://github.com/pt-loveforfictional"><img src="https://img.shields.io/badge/ᥣᥱshᥣᥱყ shιρρᥱr (ᥣᥱoᥒ x ᥲshᥣᥱყ) ♡⁠♡-a99c8a?style=flat"></a> 
-
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
