@@ -1,15 +1,10 @@
 
  <hr />
  <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
-<p> <div align="center"> <details> 
-       <summary><ins></ins> <p>$\color{#9dafbb}{\textsf{FluffAgent,SoftTouch}}$</p> </summary>
-   <div align="center">
-    &nbsp; &nbsp;
-    <p>$\color{#97918c}{\textsf{romantic,comf f/o}}$</p>
-<p>$\color{#97918c}{\textsf{heavy specific sharing}}$</p>
-    <p>$\color{#97918c}{\textsf{sharing|hyper w/ oomfs}}$</p>
-    </details>
-<br>
+ 
+<div align="center">
+<p>$\color{#9dafbb}{\textsf{FluffAgent,SoftTouch}}$</p>
+ 
 <p>  <p align="center">$\color{#b8afae}{\textsf{[click heart ⇨🍓page . art wall]}}$</p>
 <p align="center"> <img src="chips" width="230"></a> <a href="https://fluffagent.straw.page" target="_blank">
   <img src="hearts.png" alt="straw" width="230"> <img src="0.png" width="230">
