@@ -99,9 +99,6 @@
 
 <hr />
 
-<p align="center">
-everyone #follow <a href="https://github.com/R0DRICK-HEFFLEY"><kbd><b>LUVOOMF ★ </b></kbd></a> everyone: follows
-  &nbsp;&nbsp;&nbsp;&nbsp;
 </p>
 &nbsp; &nbsp; 
 <p align="center">  <img src="7a11e625d9415c0ee27e9e07dc807e2c.webp" width="300">
