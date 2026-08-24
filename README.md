@@ -19,7 +19,8 @@
   &nbsp; &nbsp; 
 <p>$\color{#a19388}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#a19388}{\textsf{she/her . 17}}$</p>
-<p>$\color{#a19388}{\textsf{socially anxious, idont initiate.}}$</p>
+<p>$\color{#a19388}{\textsf{socially anxious,awkward}}$</p>
+ <p>$\color{#8a9095}{\textsf{idont initiate !}}$</p>
 <p>$\color{#8a9095}{\textsf{dry texter, suggestive humor}}$</p>
 <p>$\color{#8a9095}{\textsf{dni if ur uncomf}}$</p>
 <p> <div align="center"> <details> 
@@ -70,7 +71,7 @@
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
     <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
 <p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
-<p>$\color{#8A837D}{\textsf{overtly doubles}}$</p>
+<p>$\color{#8A837D}{\textsf{overt-doubles}}$</p>
     </details>
 <br>
 </td>
