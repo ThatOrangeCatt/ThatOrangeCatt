@@ -82,7 +82,7 @@
 <p>$\color{#808080}{\textsf{heavy DNCopy.}}$</p>
 <p>$\color{#808080}{\textsf{c+h+k enc}}$</p>
 <p>$\color{#808080}{\textsf{W2I. distracted/afk}}$</p>
-<p>$\color{#808080}{\textsf{love making new oomf}}$</p>
+<p>$\color{#808080}{\textsf{love making oomfs}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
