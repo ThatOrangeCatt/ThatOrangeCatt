@@ -61,12 +61,13 @@
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
       &nbsp; &nbsp;
-   <p>$\color{#c1cbd1}{\textsf{DNI}}$</p>
-    <p>$\color{#9ba6ad}{\textsf{-13}}$</p>
-<p>$\color{#9ba6ad}{\textsf{AEON, graceleon ship}}$</p>
+     <p>$\color{#9ba6ad}{\textsf{DNIS}}$</p>
+   <p>$\color{#c1cbd1}{\textsf{basic dni criteria}}$</p>
+    <p>$\color{#9ba6ad}{\textsf{-15}}$</p>
+<p>$\color{#9ba6ad}{\textsf{AEON, graceleon}}$</p>
     &nbsp; &nbsp;
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
-    <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
+    <p>$\color{#8A837D}{\textsf{16-18+}}$</p>
 <p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
 <p>$\color{#8A837D}{\textsf{overt-doubles}}$</p>
     </details>
