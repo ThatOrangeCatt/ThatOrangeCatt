@@ -1,16 +1,13 @@
 
  <hr />
- <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
- 
+
 <div align="center">
-<p>$\color{#9dafbb}{\textsf{FluffAgent,SoftTouch}}$</p>
- 
-<p>  <p align="center">$\color{#b8afae}{\textsf{[click heart ⇨🍓page . art wall]}}$</p>
-<p align="center"> <img src="chips" width="230"></a> <a href="https://fluffagent.straw.page" target="_blank">
-  <img src="hearts.png" alt="straw" width="230"> <img src="0.png" width="230">
- <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-968f88?style=flat"></a> 
-<hr />
- <p align="center"><img src="unnamed.png" width="290" height="310" >
+ <p>$\color{#9ba6ad}{\textsf{FluffyAgent / oc x canon}}$</p>
+  <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-968f88?style=flat"></a> 
+<p align="center"> <img src="chips" width="230"></a>
+  <img src="hearts.png" width="230"> <img src="0.png" width="230">
+  <p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=998881&size=24&center=true&vCenter=true&width=1000&lines=I+dont+want+any+more+regrets!;+Whatever+it+takes,+count+me+in." alt="Typing SVG" /></a>
+&nbsp; &nbsp;  
 <table style="height: 603px;" width="847" align="center">
 <tbody>
 <tr>
@@ -96,8 +93,8 @@
 <hr />
 
 </p>
-&nbsp; &nbsp; 
-<p align="center">  <img src="7a11e625d9415c0ee27e9e07dc807e2c.webp" width="300">
+&nbsp; &nbsp;
+<p align="center"><img src="unnamed.png" width="290" height="310" >
 <div align="center">
   &nbsp; &nbsp; 
     <details>       <summary><ins></ins> chuds ♡♡ </summary>
