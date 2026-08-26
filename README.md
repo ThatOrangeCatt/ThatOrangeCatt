@@ -61,10 +61,10 @@
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
       &nbsp; &nbsp;
-     <p>$\color{#9ba6ad}{\textsf{LIST}}$</p>
+     <p>$\color{#9ba6ad}{\textsf{DNI LIST}}$</p>
    <p>$\color{#9ba6ad}{\textsf{basic dni criteria}}$</p>
-    <p>$\color{#9ba6ad}{\textsf{-15 dni}}$</p>
-<p>$\color{#9ba6ad}{\textsf{AEON, graceleon}}$</p>
+    <p>$\color{#9ba6ad}{\textsf{-15}}$</p>
+<p>$\color{#9ba6ad}{\textsf{AEON, graceleon ship}}$</p>
     &nbsp; &nbsp;
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
     <p>$\color{#8A837D}{\textsf{16-18+}}$</p>
