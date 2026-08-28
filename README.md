@@ -2,7 +2,7 @@
  <hr />
 
 <div align="center">
- <p>$\color{#9ba6ad}{\textsf{FluffyAgent / oc x canon}}$</p>
+ <p>$\color{#9ba6ad}{\textsf{FluffyAgent / yumesona x canon}}$</p>
   <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-968f88?style=flat"></a> 
 <p align="center"> <img src="chips" width="230"></a>
   <img src="hearts.png" width="230"> <img src="0.png" width="230">
@@ -69,7 +69,7 @@
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
     <p>$\color{#8A837D}{\textsf{16-18+}}$</p>
 <p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
-<p>$\color{#8A837D}{\textsf{overt-doubles}}$</p>
+<p>$\color{#8A837D}{\textsf{non oomf-doubles}}$</p>
     </details>
 <br>
 </td>
