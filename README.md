@@ -24,8 +24,9 @@
        <summary><ins></ins> INTERACT ✰ </summary>
    <div align="center">
     &nbsp; &nbsp;
-    <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa, dbh, Linkclick etc.}}$</p>
-<p>$\color{#8A837D}{\textsf{+ leon-ashley, jillclaire/grace ship}}$</p>
+    <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa,}}$</p>
+     <p>$\color{#A19C99}{\textsf{dbh, linkclick etc.}}$</p>
+<p>$\color{#8A837D}{\textsf{+ leshley, jillclaire/grace}}$</p>
     </details>
 <br>
  &nbsp; &nbsp; 
