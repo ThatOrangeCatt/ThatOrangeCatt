@@ -64,7 +64,7 @@
       &nbsp; &nbsp;
      <p>$\color{#9ba6ad}{\textsf{BYI/DNI}}$</p>
    <p>$\color{#9ba6ad}{\textsf{basic dni criteria}}$</p>
-    <p>$\color{#9ba6ad}{\textsf{-13}}$</p>
+    <p>$\color{#9ba6ad}{\textsf{-15 dniuid}}$</p>
 <p>$\color{#9ba6ad}{\textsf{AEON, graceleon ship}}$</p>
     &nbsp; &nbsp;
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
