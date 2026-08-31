@@ -16,9 +16,9 @@
   &nbsp; &nbsp; 
 <p>$\color{#a19388}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#a19388}{\textsf{she/her . 17}}$</p>
-<p>$\color{#a19388}{\textsf{socially anxious,awkward}}$</p>
- <p>$\color{#8a9095}{\textsf{idont initiate !}}$</p>
-<p>$\color{#8a9095}{\textsf{dry texter, suggestive humor}}$</p>
+<p>$\color{#a19388}{\textsf{social anxiety,awkward}}$</p>
+ <p>$\color{#8a9095}{\textsf{idont socially initiate}}$</p>
+<p>$\color{#8a9095}{\textsf{dry texter, suggestive person.}}$</p>
 <p>$\color{#8a9095}{\textsf{dni if ur uncomf}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
@@ -62,9 +62,9 @@
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
       &nbsp; &nbsp;
-     <p>$\color{#9ba6ad}{\textsf{DNI LIST}}$</p>
+     <p>$\color{#9ba6ad}{\textsf{BYI/DNI}}$</p>
    <p>$\color{#9ba6ad}{\textsf{basic dni criteria}}$</p>
-    <p>$\color{#9ba6ad}{\textsf{-15}}$</p>
+    <p>$\color{#9ba6ad}{\textsf{-13}}$</p>
 <p>$\color{#9ba6ad}{\textsf{AEON, graceleon ship}}$</p>
     &nbsp; &nbsp;
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
@@ -79,10 +79,10 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
-<p>$\color{#808080}{\textsf{heavy DNCopy.}}$</p>
+<p>$\color{#808080}{\textsf{DNCopy.}}$</p>
 <p>$\color{#808080}{\textsf{c+h+k enc}}$</p>
 <p>$\color{#808080}{\textsf{W2I. distracted/afk}}$</p>
-<p>$\color{#808080}{\textsf{love making oomfs}}$</p>
+<p>$\color{#808080}{\textsf{bmf . open to new oomfs}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
