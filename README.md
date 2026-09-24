@@ -16,10 +16,10 @@
   &nbsp; &nbsp; 
 <p>$\color{#a19388}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#a19388}{\textsf{she/her . 17}}$</p>
-<p>$\color{#a19388}{\textsf{social anxiety,awkward}}$</p>
- <p>$\color{#8a9095}{\textsf{idont socially initiate}}$</p>
+<p>$\color{#a19388}{\textsf{digi artist . oshikatsu}}$</p>
+ <p>$\color{#8a9095}{\textsf{social anxiety,awkward}}$</p>
 <p>$\color{#8a9095}{\textsf{dry texter, suggestive person.}}$</p>
-<p>$\color{#8a9095}{\textsf{dni if ur uncomf}}$</p>
+<p>$\color{#8a9095}{\textsf{uncomf = dni}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
    <div align="center">
@@ -64,7 +64,7 @@
       &nbsp; &nbsp;
      <p>$\color{#9ba6ad}{\textsf{BYI/DNI}}$</p>
    <p>$\color{#9ba6ad}{\textsf{basic dni criteria}}$</p>
-    <p>$\color{#9ba6ad}{\textsf{-15 dniuid}}$</p>
+    <p>$\color{#9ba6ad}{\textsf{-13}}$</p>
 <p>$\color{#9ba6ad}{\textsf{AEON, graceleon ship}}$</p>
     &nbsp; &nbsp;
    <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
