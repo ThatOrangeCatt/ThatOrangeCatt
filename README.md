@@ -16,10 +16,9 @@
   &nbsp; &nbsp; 
 <p>$\color{#a19388}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#a19388}{\textsf{she/her . 17}}$</p>
-<p>$\color{#a19388}{\textsf{digi artist . oshikatsu}}$</p>
+<p>$\color{#a19388}{\textsf{digi artist . oshi(katsu)}}$</p>
  <p>$\color{#8a9095}{\textsf{social anxiety,awkward}}$</p>
 <p>$\color{#8a9095}{\textsf{dry texter, suggestive person.}}$</p>
-<p>$\color{#8a9095}{\textsf{uncomf = dni}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
    <div align="center">
