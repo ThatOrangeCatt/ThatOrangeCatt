@@ -78,9 +78,9 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
-<p>$\color{#808080}{\textsf{DNCopy.}}$</p>
-<p>$\color{#808080}{\textsf{c+h+k enc}}$</p>
-<p>$\color{#808080}{\textsf{W2I. distracted/afk}}$</p>
+ <p>$\color{#808080}{\textsf{c+h+k enc}}$</p>
+<p>$\color{#808080}{\textsf{inspo ok}}$</p>
+<p>$\color{#808080}{\textsf{W2I. offtab}}$</p>
 <p>$\color{#808080}{\textsf{bmf . open to new oomfs}}$</p>
 <p>&nbsp;</p>
 </td>
