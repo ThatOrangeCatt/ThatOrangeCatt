@@ -1,4 +1,4 @@
-
+ <div align="center"> be my oomfs i'm aura. c+h always ok
  <hr />
 
 <div align="center">
@@ -14,8 +14,7 @@
 <p>$\color{#a19388}{\textsf{ xyumi / chips / grace.}}$</p>
 <p>$\color{#a19388}{\textsf{she/her . 17}}$</p>
 <p>$\color{#a19388}{\textsf{digi artist . oshi(katsu)}}$</p>
- <p>$\color{#8a9095}{\textsf{social anxiety,awkward}}$</p>
-<p>$\color{#8a9095}{\textsf{dry texter, suggestive person.}}$</p>
+ <p>$\color{#8a9095}{\textsf{socially awkward}}$</p>
 <p> <div align="center"> <details> 
        <summary><ins></ins> INTERACT ✰ </summary>
    <div align="center">
@@ -59,15 +58,11 @@
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
       &nbsp; &nbsp;
-     <p>$\color{#9ba6ad}{\textsf{BYI/DNI}}$</p>
-   <p>$\color{#9ba6ad}{\textsf{basic dni criteria}}$</p>
-    <p>$\color{#9ba6ad}{\textsf{-13}}$</p>
-<p>$\color{#9ba6ad}{\textsf{AEON, graceleon ship}}$</p>
+   <p>$\color{#9ba6ad}{\textsf{basic dni}}$</p>
+<p>$\color{#9ba6ad}{\textsf{no AEON}}$</p>
     &nbsp; &nbsp;
-   <p>$\color{#c8beb8}{\textsf{IWEC}}$</p>
-    <p>$\color{#8A837D}{\textsf{16-18+}}$</p>
-<p>$\color{#8A837D}{\textsf{fndom discourse}}$</p>
-<p>$\color{#8A837D}{\textsf{non oomf-doubles}}$</p>
+    <p>$\color{#8A837D}{\textsf{15-18+ iwc}}$</p>
+<p>$\color{#8A837D}{\textsf{nonoomf-doubles iwc}}$</p>
     </details>
 <br>
 </td>
@@ -76,10 +71,9 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
- <p>$\color{#808080}{\textsf{c+h+k enc}}$</p>
 <p>$\color{#808080}{\textsf{inspo ok}}$</p>
 <p>$\color{#808080}{\textsf{W2I. offtab}}$</p>
-<p>$\color{#808080}{\textsf{bmf . open to new oomfs}}$</p>
+<p>$\color{#808080}{\textsf{open to new friends}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
