@@ -20,8 +20,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p>$\color{#A19C99}{\textsf{bmf: resievil, chiikawa,}}$</p>
-     <p>$\color{#A19C99}{\textsf{dbh, linkclick etc.}}$</p>
-<p>$\color{#8A837D}{\textsf{+ leshley, jillclaire/grace}}$</p>
+     <p>$\color{#A19C99}{\textsf{dbh, LC etc.}}$</p>
     </details>
 <br>
  &nbsp; &nbsp; 
@@ -58,11 +57,11 @@
 <td style="width: 441.991px;"><img src="fc798299e3115a864e360b7e72662a16.jpg" alt="neow" width="377" height="212" /></td>
 <td style="width: 418.929px;" align="center">
       &nbsp; &nbsp;
-   <p>$\color{#9ba6ad}{\textsf{basic dni}}$</p>
-<p>$\color{#9ba6ad}{\textsf{no AEON}}$</p>
+   <p>$\color{#808080}{\textsf{basic dni}}$</p>
     &nbsp; &nbsp;
-    <p>$\color{#8A837D}{\textsf{15-18+ iwc}}$</p>
-<p>$\color{#8A837D}{\textsf{nonoomf-doubles iwc}}$</p>
+<p>$\color{#8A837D}{\textsf{--IWC--}}$</p>
+    <p>$\color{#8A837D}{\textsf{15-18+}}$</p>
+<p>$\color{#8A837D}{\textsf{nonoomf-double}}$</p>
     </details>
 <br>
 </td>
@@ -71,9 +70,9 @@
 <tr>
 <td style="width: 441.991px;" align="center">&nbsp;
 <p>$\color{#D9D3CE}{\textsf{ABOUT PT}}$</p>
-<p>$\color{#808080}{\textsf{inspo ok}}$</p>
-<p>$\color{#808080}{\textsf{W2I. offtab}}$</p>
-<p>$\color{#808080}{\textsf{open to new friends}}$</p>
+ <p>$\color{#808080}{\textsf{W2I pref.}}$</p>
+ <p>$\color{#808080}{\textsf{inspo ok}}$</p>
+ <p>$\color{#808080}{\textsf{no rp/troll}}$</p>
 <p>&nbsp;</p>
 </td>
 <p>&nbsp;</p>
