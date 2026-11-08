@@ -1,16 +1,29 @@
-## Hi there 👋
+  <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for the red ticket-8d0d0d?style=flat"></a> 
 
-<!--
-**ThatOrangeCatt/ThatOrangeCatt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+ <img src="shion.jpg" width="500"/></td>
 
-Here are some ideas to get you started:
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=TimesNewRoman&size=29&duration=3600&pause=100&color=ad2727&center=true&vCenter=true&width=435&lines=Let's+run+away;together,+forever.+)](https://git.io/typing-svg)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<hr />
+    
+<p> <div align="center"> <details> 
+       <summary><ins></ins> </summary>
+   <div align="center">
+    &nbsp; &nbsp;
+    <p>Xyumi / Yuumi / Shion
+    <p> any prns . 17
+           <p> socially awkward . standoffish
+      <p> int: Saihate, RE, chiikawa & more
+    </details>
+<br>
+<p> <div align="center"> <details> 
+       <summary><ins></ins> </summary>
+   <div align="center">
+    &nbsp; &nbsp;
+    <p> C+H ok ^_^
+    <p> w2i pls
+<p> BASIC DNI
+  <p> no rp/troll . ill hide u 
+    </details>
+<br>
