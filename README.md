@@ -12,7 +12,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p>Xyumi / Yuumi / Shion
-    <p> any pronouns . 17
+    <p> she/her . 17
            <p> socially awkward . standoffish
       <p> int: Saihate, RE, chiikawa & more
     </details>
