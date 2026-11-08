@@ -12,7 +12,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p>Xyumi / Yuumi / Shion
-    <p> any prns . 17
+    <p> any pronouns . 17
            <p> socially awkward . standoffish
       <p> int: Saihate, RE, chiikawa & more
     </details>
@@ -23,7 +23,7 @@
     &nbsp; &nbsp;
     <p> C+H ok ^_^
     <p> w2i pls
-<p> BASIC DNI
+<p> BASIC DNI 
   <p> no rp/troll . ill hide u 
     </details>
 <br>
