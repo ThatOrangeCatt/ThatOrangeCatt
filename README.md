@@ -1,4 +1,4 @@
-  <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for the red ticket-8d0d0d?style=flat"></a> 
+  <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/sign ata for the red ticket-8d0d0d?style=flat"></a> 
 
 <div align="center">
  <img src="shion.jpg" width="500"/></td>
