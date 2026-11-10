@@ -1,4 +1,4 @@
-  <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/sign ata for the red ticket-8d0d0d?style=flat"></a> 
+  <p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for the red ticket-8d0d0d?style=for-the-badge"></a> 
 
 <div align="center">
  <img src="shion.jpg" width="500"/></td>
@@ -7,23 +7,22 @@
 
 <hr />
     
-<p> <div align="center"> <details> 
-       <summary><ins></ins> </summary>
-   <div align="center">
-    &nbsp; &nbsp;
+ <div align="center"> 
+        <p> ───────────────
     <p>Xyumi / Yuumi / Shion
     <p> she/her . 17
-           <p> socially awkward . standoffish
-      <p> int: Saihate, RE, chiikawa & more
-    </details>
-<br>
+      <p> digital art . oshikatsu 
+           <p> iwc ! socially awkward . standoffish
+      <p> current: Saihate, Resident Evil, chiikawa, & more
+                <p> ───────────────
+
 <p> <div align="center"> <details> 
        <summary><ins></ins> </summary>
    <div align="center">
     &nbsp; &nbsp;
     <p> C+H ok ^_^
+   <p> Basic DNI 
     <p> w2i pls
-<p> BASIC DNI 
   <p> no rp/troll . ill hide u 
     </details>
 <br>
