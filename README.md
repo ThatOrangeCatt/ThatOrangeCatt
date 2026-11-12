@@ -11,9 +11,8 @@
         <p> ───────────────
     <p>Xyumi / Yuumi / Shion
     <p> she/her . 17
-      <p> digital art . f/o oshikatsu 
            <p> socially awkward . standoffish
-      <p> current:Saihate, Resident Evil, chiikawa, & more
+      <p> int: Saihate, Resident Evil, chiikawa, & more
                 <p> ───────────────
 
 <p> <div align="center"> <details> 
