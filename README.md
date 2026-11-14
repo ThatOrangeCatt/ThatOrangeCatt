@@ -17,7 +17,7 @@
        <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ BYI -9a2828?style=for-the-badge"></a> </summary>
    <div align="center">
     &nbsp; &nbsp;
-    <p> known multiple alter-ego person. voluntary
+    <p> known alter(s) ego person. voluntary
         <p> bmf !!! . i warm up & get closer
  <p> socially   awkward . standoffish
     <p> informal, unserious humor. slight-nsfw remarks
