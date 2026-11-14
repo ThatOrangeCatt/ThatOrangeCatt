@@ -18,7 +18,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p> known multiple alter-ego person. voluntary
-        <p> bmf ALWAYS . i warm up & get closer
+        <p> bmf !!! . i warm up & get closer
  <p> socially   awkward . standoffish
     <p> informal, unserious humor. slight-nsfw remarks
     </details>
