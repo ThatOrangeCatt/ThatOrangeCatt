@@ -18,7 +18,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p> known alter(s) ego person. voluntary
-        <p> bmf !!! . i warm up & get closer
+        <p> selfship . Grace Ashcroft F/O 
  <p> socially   awkward . standoffish
     <p> informal, unserious humor. slight-nsfw remarks
     </details>
@@ -31,8 +31,8 @@
    <div align="center">
     &nbsp; &nbsp;
     <p> C+H ok ^_^
+          <p> bmf !! im lonely 
    <p> Basic DNI 
-    <p> w2i pls
   <p> no rp/troll . ill hide u 
     </details>
 <br>
