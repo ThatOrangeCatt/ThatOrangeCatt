@@ -14,7 +14,7 @@
                 <p> ───────────────
 
 <p> <div align="center"> <details> 
-       <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ BYI -b51313?style=for-the-badge"></a> </summary>
+       <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ BYI -9a2828?style=for-the-badge"></a> </summary>
    <div align="center">
     &nbsp; &nbsp;
     <p> known multiple alter-ego person. voluntary
@@ -27,7 +27,7 @@
 
 
 <p> <div align="center"> <details> 
-       <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ PT -b51313?style=for-the-badge"></a> </summary>
+       <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ PT -9a2828?style=for-the-badge"></a> </summary>
    <div align="center">
     &nbsp; &nbsp;
     <p> C+H ok ^_^
