@@ -10,7 +10,7 @@
     <p>Xyumi / Yuumi / Shion
     <p> she/her . 17
           <p> Digi-artist , oshikatsu
-      <p> int: Saihate, Resident Evil, chiikawa, & more
+      <p> main: Saihate, Resident Evil, chiikawa, gsgw & more
                 <p> ───────────────
 
 <p> <div align="center"> <details> 
