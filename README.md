@@ -10,17 +10,17 @@
     <p>Xyumi / Yuumi / Shion
     <p> she/her . 17
           <p> Digi-artist , oshikatsu
-      <p> main: Saihate, Resident Evil, chiikawa, gsgw & more
+      <p> int: Saihate, Resident Evil, chiikawa, gsgw
                 <p> ───────────────
 
 <p> <div align="center"> <details> 
        <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ BYI -9a2828?style=for-the-badge"></a> </summary>
    <div align="center">
     &nbsp; &nbsp;
-    <p> known alter(s) ego person. voluntary
-        <p> selfship . Grace Ashcroft F/O 
+    <p> known alter(s) ego person. voluntary 
+      <p> a selfshipper
  <p> socially   awkward . standoffish
-    <p> informal, unserious humor. slight-nsfw remarks
+    <p> informal humor/remarks. slight-nsfw
     </details>
 <br>
 
@@ -31,7 +31,6 @@
    <div align="center">
     &nbsp; &nbsp;
     <p> C+H ok ^_^
-          <p> bmf !! im lonely 
    <p> Basic DNI 
   <p> no rp/troll . ill hide u 
     </details>
