@@ -9,18 +9,17 @@
         <p> ───────────────
     <p>Xyumi / Yuumi / Shion
     <p> she/her . 17
-          <p> Digi-artist , oshikatsu
-      <p> int: Saihate, Resident Evil, chiikawa, gsgw
+      <p> socially   awkward . standoffish
+      <p> int: Saihate, Resident Evil, chiikawa & more
                 <p> ───────────────
 
 <p> <div align="center"> <details> 
        <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ BYI -9a2828?style=for-the-badge"></a> </summary>
    <div align="center">
     &nbsp; &nbsp;
-    <p> known alter(s) ego person. voluntary 
-      <p> a selfshipper
- <p> socially   awkward . standoffish
-    <p> informal humor/remarks. slight-nsfw
+    <p> known voluntary alter(s) ego . not a sys
+      <p> selfshipping/selfship
+    <p> informal humor/remarks. slightly-nsfw
     </details>
 <br>
 
@@ -31,7 +30,7 @@
    <div align="center">
     &nbsp; &nbsp;
     <p> C+H ok ^_^
-   <p> Basic DNI 
+   <p> Basic DNI criteria 
   <p> no rp/troll . ill hide u 
     </details>
 <br>
