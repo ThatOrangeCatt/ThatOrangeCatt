@@ -17,7 +17,7 @@
        <summary><ins></ins>  <p align="center"><img src="https://img.shields.io/badge/ BYI -9a2828?style=for-the-badge"></a> </summary>
    <div align="center">
     &nbsp; &nbsp;
-    <p> known voluntary alter(s) ego . not a sys
+    <p> known voluntary alter(s) ego . -not sys-
       <p> selfshipping/selfship
     <p> informal humor/remarks. slightly-nsfw
     </details>
